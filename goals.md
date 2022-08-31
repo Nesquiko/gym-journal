@@ -2,7 +2,7 @@
 
 ## Goals
 
-###  To the end of September: (0/3)
+### To the end of September: (0/3)
 
 - [ ] hit 140kg on deadlift
 - [ ] hit 140kg on squat

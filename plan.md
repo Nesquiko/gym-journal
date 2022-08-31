@@ -27,18 +27,19 @@ That's all, simply follow the process outlined here.
 
 **Prepare workouts for the incoming week in advance. Not later than on sunday.**
 
-* Think about them, always improve.
-* Build the workouts with the previous week in mind.
-	* Was last week the weight light on the Bench Press? Increase it!
-	* Was the weight too much, you didn't hit the reps that you should've? Decrease the weight and up the reps!
-* Do not exactly repeat last weeks workouts. Change the reps, the weights, something...
-* Do not be afraid to experiment.
+- Think about them, always improve.
+- Build the workouts with the previous week in mind.
+  - Was last week the weight light on the Bench Press? Increase it!
+  - Was the weight too much, you didn't hit the reps that you should've? Decrease the weight and up the reps!
+- Do not exactly repeat last weeks workouts. Change the reps, the weights, something...
+- Do not be afraid to experiment.
 
 ### Follow the plan
 
 **Don't change workout in the middle of it, follow your plan exactly.**
 
 Only change when:
+
 1. An equipment/place is taken and you don't have time to wait.
 2. You will increase the reps, sets, add exercise. Basically only when you will be doin more.
 3. Injury
@@ -72,12 +73,13 @@ Look to the ground if you think others are looking at you.
 ### Stay consistent with nutrition
 
 Do not throw whole week of healthy eating into a bin on weekends.
-* DO NOT open the fridge when you don't know what you want.
-* DO NOT open the candy locker when you are bored.
 
-* You want something sweet, eat an apple, banana...
-* Want a snack eat oatmeal, fruit, white yogurth...
-* Nothing healthy is cooked? Make eggs, or eat tuna...
+- DO NOT open the fridge when you don't know what you want.
+- DO NOT open the candy locker when you are bored.
+
+- You want something sweet, eat an apple, banana...
+- Want a snack eat oatmeal, fruit, white yogurth...
+- Nothing healthy is cooked? Make eggs, or eat tuna...
 
 ### Sleep and regenerate
 
@@ -90,4 +92,3 @@ In the gym, stretch the muscle group you worked on that day. Or use roller.
 Once a week have a stretching session, about 20 to 30 minutes of pure stretching.
 
 Also eat protein and healthy carbs!
-
