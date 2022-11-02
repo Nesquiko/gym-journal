@@ -1,10 +1,18 @@
 # Gym goals for 2022
 
-## To the end of October: (2/3)
+## To the end of November: (0/3)
+
+- get comfortable with 140kg on deadlift
+- get comfortable with 140kg on squat
+- get comfortable with 80kg on bench
+
+## To the end of October: (3/3)
+
+Hit all 3 goals!
 
 - hit 140kg on deadlift ✔️
 - hit 140kg on squat ✔️
-- hit 80kg on bench
+- hit 80kg on bench ✔️
 
 ## To the end of September: (0/3)
 
