@@ -1,10 +1,17 @@
 # Gym goals for 2022
 
-## To the end of November: (0/3)
+## To the end of December: (0/1)
 
-- get comfortable with 140kg on deadlift
-- get comfortable with 140kg on squat
-- get comfortable with 80kg on bench
+- Gain weight
+
+## To the end of November: (3/3)
+
+On all 3 lifts I am comfortable with weights
+I set as goal.
+
+- get comfortable with 140kg on deadlift ✔️
+- get comfortable with 140kg on squat ✔️
+- get comfortable with 80kg on bench ✔️
 
 ## To the end of October: (3/3)
 
