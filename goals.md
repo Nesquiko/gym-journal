@@ -1,8 +1,11 @@
 # Gym goals for 2022
 
-## To the end of December: (0/1)
+## To the end of December: (1/1)
 
-- Gain weight
+I was stuck at around 71kg for at least 3 weeks, but after I hit 72kg, so it is
+possible, but it will require more thought than just eating anything
+
+- Gain weight ✔️
 
 ## To the end of November: (3/3)
 
