@@ -1,5 +1,7 @@
 ## 12.1.
 
+Went on walk.
+
 1. Front squats
    - working sets: 3 x 4 x 60kg
    - rest in-between: 1'
