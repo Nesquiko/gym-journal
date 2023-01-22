@@ -1,3 +1,18 @@
+## 27.1.
+
+1. Deadlift with belt
+   - working sets: 3 x 3 x 130kg
+   - rest in-between: 2'
+2. Deadlift
+   - working sets: 3 x 6 x 100kg
+   - rest in-between: 1'
+3. Hyperextensions
+   - working sets: 5 x 12
+   - rest in-between: 1'
+4. Stretching
+   - lying bend leg on other side stretch: 3 x 15" per side
+   - lying hamstring strecth: 3 x 15" per side
+
 ## 20.1.
 
 1. Deadlift

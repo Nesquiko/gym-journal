@@ -1,3 +1,26 @@
+## 26.1.
+
+1. Front squats
+   - working sets: 3 x 3 x 80kg
+   - rest in-between: 2'
+2. Overhead press
+   - working sets: 3 x 5 x 50kg
+   - rest in-between: 2'
+3. Overhead press
+   - working sets: 4 x 12 x 35kg
+   - rest in-between: 1'
+4. Dumbbell lateral raise
+   - working sets: 4 x 15 x 10kg
+   - rest in-between: 30"
+5. Rear delt row
+   - working sets: 4 x 15 x 6kg
+   - rest in-between: 30"
+6. Stretching
+   - lying quad stretch: 3 x 15" per leg
+   - leg over leg glute stretch: 3 x 15" per leg
+   - shoulder band mobility exercise: 3 x 8
+   - stick stretch of shoulder: 3 x 30" hold per arm
+
 ## 19.1.
 
 1. Front squats

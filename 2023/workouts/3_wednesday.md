@@ -1,3 +1,26 @@
+## 25.1.
+
+1. Pullups
+   - working sets: 5 x 8
+   - rest in-between: 1'
+2. Bent over row
+   - working sets: 4 x 8 x 60kg
+   - rest in-between: 1'
+3. One arm dumbbell row
+   - working sets: 4 x 12 x 30kg
+   - rest in-between: 1'
+4. Lat pulldowns wide grip
+   - working sets: 4 x 20 x 45kg
+   - rest in-between: 1'
+5. EZ bar bicep curl
+   - working sets: 5 x 10 x 10kg per side
+   - rest in-between: 1'
+6. Stretching
+   - elbow over head stretch: 3 x 15" per arm
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 18.1.
 
 1. Pullups

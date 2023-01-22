@@ -1,3 +1,26 @@
+## 24.1.
+
+1. Bench press
+   - working sets: work up to 1x80kg
+2. Bench press
+   - working sets: 3 x 3 x 70kg
+   - rest in-between: 2'
+3. Bench press
+   - working sets: 2 x 10 x 60
+   - working sets: 2 x 15 x 50
+   - working sets: 2 x 20 x 40
+   - rest in-between: 1'
+4. Cable crossover
+   - working sets: 5 x 20 x 8kg
+   - rest in-between: 30"
+5. Triceps kickback
+   - working sets: 5 x 12 x 6kg
+   - rest in-between: 30"
+6. Face pulls
+   - Try slowing it down and holding, or add weight
+   - working sets: 4 x 12 x 12.5kg
+   - rest in-between: 30"
+
 ## 17.1.
 
 1. Bench press
