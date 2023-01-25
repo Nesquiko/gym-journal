@@ -1,19 +1,23 @@
 ## 25.1.
 
 1. Pullups
+   - 8 reps was enough, next week 10
    - working sets: 5 x 8
    - rest in-between: 1'
 2. Bent over row
-   - working sets: 4 x 8 x 60kg
+   - I did only 6 reps, at 7th and 8th I started using body to cheat
+   - working sets: 4 x 6 x 60kg
    - rest in-between: 1'
 3. One arm dumbbell row
-   - working sets: 4 x 12 x 30kg
+   - Felt weird, I was twisting, must work on the form
+   - working sets: 4 x 12 x 20kg
    - rest in-between: 1'
-4. Lat pulldowns wide grip
+4. Seated rows
+   - Biceps were first to give up, but the straps helped me get 20 reps
    - working sets: 4 x 20 x 45kg
    - rest in-between: 1'
-5. EZ bar bicep curl
-   - working sets: 5 x 10 x 10kg per side
+5. Incline dumbbell bicep curls
+   - working sets: 4 x (UF x 10kg + UF x 7.5kg)
    - rest in-between: 1'
 6. Stretching
    - elbow over head stretch: 3 x 15" per arm
