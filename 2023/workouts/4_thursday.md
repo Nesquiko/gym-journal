@@ -1,19 +1,23 @@
 ## 26.1.
 
 1. Front squats
+   - My upper back started to cave little bit
    - working sets: 3 x 3 x 80kg
-   - rest in-between: 2'
-2. Overhead press
-   - working sets: 3 x 5 x 50kg
-   - rest in-between: 2'
-3. Overhead press
-   - working sets: 4 x 12 x 35kg
    - rest in-between: 1'
-4. Dumbbell lateral raise
-   - working sets: 4 x 15 x 10kg
+2. Overhead press
+   - 40kgs were shaky, so I didn't add more weight
+   - working sets: 3 x 5 x 40kg
+   - rest in-between: 1'
+3. Dumbbell lateral raise
+   - Moderate burn
+   - working sets: 5 x 15 x 10kg
+   - rest in-between: 30"
+4. Rear peck deck
+   - testing this, I don't like it
+   - working sets: 3 x 10 x 30kg
    - rest in-between: 30"
 5. Rear delt row
-   - working sets: 4 x 15 x 6kg
+   - working sets: 3 x 15 x 6kg
    - rest in-between: 30"
 6. Stretching
    - lying quad stretch: 3 x 15" per leg
