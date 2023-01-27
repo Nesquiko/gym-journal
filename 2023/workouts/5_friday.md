@@ -1,17 +1,17 @@
 ## 27.1.
 
-1. Deadlift with belt
-   - working sets: 3 x 3 x 130kg
+1. Dumbberll deadlift
+   - good for warm up
+   - working sets: 10 x 15kg, 8 x 20kg, 6 x 30kg
+2. Deadlift with belt
+   - Well, the first set was grindy, and then I failed to get 3 reps
+   - working sets: 3 x 130kg, 2 x 130kg, 1 x 130kg
    - rest in-between: 2'
-2. Deadlift
-   - working sets: 3 x 6 x 100kg
-   - rest in-between: 1'
-3. Hyperextensions
-   - working sets: 5 x 12
-   - rest in-between: 1'
-4. Stretching
+3. Stretching
    - lying bend leg on other side stretch: 3 x 15" per side
    - lying hamstring strecth: 3 x 15" per side
+   - lying quad stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
 
 ## 20.1.
 
