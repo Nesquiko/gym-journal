@@ -1,3 +1,26 @@
+## 1.2.
+
+1. Pullups
+   - working sets: 4 x 10
+   - rest in-between: 1'
+2. Seated rows
+   - working sets: 4 x 8 x 65kg
+   - rest in-between: 1'
+3. One arm dumbbell row
+   - working sets: 4 x 8 x 25kg
+   - rest in-between: 1'
+4. Straight arm pushdown
+   - working sets: 4 x 15 x 20kg
+   - rest in-between: 1'
+5. EZ bar bicep curl
+   - working sets: 5 x UF x 10kg per side
+   - rest in-between: 30"
+6. Stretching
+   - elbow over head stretch: 3 x 15" per arm
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 25.1.
 
 1. Pullups

@@ -1,3 +1,16 @@
+## 3.2.
+
+1. Deadlift with belt
+   - working sets: work up to 1x140kg
+2. Deadlift with belt
+   - working sets: 3 x 3 x 130kg
+   - rest in-between: 2'
+3. Stretching
+   - lying bend leg on other side stretch: 3 x 15" per side
+   - lying hamstring strecth: 3 x 15" per side
+   - lying quad stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 27.1.
 
 1. Dumbberll deadlift

@@ -1,3 +1,26 @@
+## 31.1.
+
+1. Bench press
+   - working sets: work up to 1x80kg
+2. Bench press
+   - working sets: 3 x 5 x 70kg
+   - rest in-between: 2'
+3. Bench press
+   - working sets: 10 x 60kg + 7 x 60kg
+   - working sets: 2 x 15 x 50kg
+   - working sets: 2 x 20 x 40kg
+   - rest in-between: 1'
+4. Dips
+   - pyramid from 25 to 1
+   - rest in-between: 30"
+5. Face pulls
+   - working sets: 4 x 10 x 15kg
+   - rest in-between: 30"
+6. Stretching
+   - chest stretch against wall: 3 x 15" per arm
+   - Jesus with trx: 3 x 15"
+   - elbow over head stretch: 3 x 15" per arm
+
 ## 24.1.
 
 1. Bench press
