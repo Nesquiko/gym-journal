@@ -1,26 +1,23 @@
 ## 30.1.
 
 1. Squats with belt
-   - work up to 1 x 140kg
+   - Didn't feel 14kg, next week box squats
+   - work up to 1 x 130kg
 2. Squats with belt
+   - The form wasn't best, but all were at least parallel
    - working sets: 3 x 3 x 120kg
    - rest in-between: 2'
 3. Back lunges
+   - these are so uncomfortable, but really worth it
    - working sets: 4 x 5 per leg x 30kg in both hand
    - rest in-between: 1'
-4. One leg seated calf raises
-   - working sets: 4 x 15 per leg + 10 with right x 20kg
+4. Seated calf raises
+   - working sets: 4 x 20 x 50kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
-5. Standing calf raises
-   - working sets: 4 x 20 x 70kg
-   - rest in-between: stretch calves 2 x 8' per leg + 30"
-6. Standing calf raises
-   - working sets: 3 x UF (slow up + hold + slod down ) x 40kg
-   - rest in-between: stretch calves 2 x 8' per leg + 30"
-7. Stretching
+5. Stretching
    - standing quads stretch: 2 x 30" per leg
    - leg over leg glute stretch: 3 x 15" per leg
-   - calf stretch against wall: 3 x 15" per calf
+   - calf stretch against wall: 2 x 20" per calf
 
 ## 23.1.
 
