@@ -1,19 +1,23 @@
 ## 31.1.
 
 1. Bench press
+   - Form wasn't good, didn't feel any stronger than last week
    - working sets: work up to 1x80kg
 2. Bench press
-   - working sets: 3 x 5 x 70kg
+   - Today was weird, I felt weak, and also my left arm was lacking in strength
+   - working sets: 3 x 3 x 70kg
    - rest in-between: 2'
 3. Bench press
-   - working sets: 10 x 60kg + 7 x 60kg
-   - working sets: 2 x 15 x 50kg
-   - working sets: 2 x 20 x 40kg
+   - No strength at all, I'm suprised I even did the first sets
+   - working sets: 10 x 60kg + UF x 60kg
+   - working sets: 15 x 50kg + UF x 50kg
    - rest in-between: 1'
 4. Dips
-   - pyramid from 25 to 1
+   - haha, wanted to start at 25... Well first set was 20 and then it dropped to 8, so next time start at 15
+   - pyramid from 8 to 1
    - rest in-between: 30"
 5. Face pulls
+   - increase reps
    - working sets: 4 x 10 x 15kg
    - rest in-between: 30"
 6. Stretching
