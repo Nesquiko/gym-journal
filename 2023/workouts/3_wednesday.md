@@ -1,23 +1,27 @@
 ## 1.2.
 
 1. Pullups
-   - working sets: 4 x 10
-   - rest in-between: 1'
+   - 10 reps was too high, managed to get around 9 reps in
+   - working sets: 4 x 8-10
+   - rest in-between: 2'
 2. Seated rows
+   - Just light muscle fatigue
    - working sets: 4 x 8 x 65kg
    - rest in-between: 1'
-3. One arm dumbbell row
-   - working sets: 4 x 8 x 25kg
+3. Straight arm pushdown
+   - Still I feel my right lat more than left one
+   - working sets: 4 x 15 x 25kg
    - rest in-between: 1'
-4. Straight arm pushdown
-   - working sets: 4 x 15 x 20kg
+4. One arm dumbbell row
+   - I think I can even try with 32.5kg
+   - working sets: 4 x 8 x (25kg, 27.5kg, 2x30kg)
    - rest in-between: 1'
-5. EZ bar bicep curl
-   - working sets: 5 x UF x 10kg per side
+5. Dumbbell bicep curl
+   - working sets: 5 x UF x 12.5kg in hand
    - rest in-between: 30"
 6. Stretching
-   - elbow over head stretch: 3 x 15" per arm
    - on knees lats stretch: 2 x 15" per direction
+   - bend to the side lat stretch: 3 x 15" per arm
    - straight arms behind head against wall stretch: 3 x 30"
    - bicep stretch: 3 x 15" per arm
 
