@@ -1,3 +1,32 @@
+## 9.2.
+
+1. Front squats
+   - working sets: 3 x 2 x 90kg
+   - rest in-between: 1'
+2. Overhead press
+   - working set: 3 x 4 x 50kg
+   - rest in-between: 1'
+3. Overhead press
+   - ignition set: 12 x 35kg
+   - working set: 20 (pause for 15" on failure) x 35kg
+4. Dumbbell lateral raise
+   - ignition set: 12 x 12.5kg
+   - working set: 20 (hold for 5", pause for 15" on failure) x 6kg
+5. Dumbbell hip hugger
+   - I felt upper traps and rear delt, but I should increase weight
+   - ignition set: 12 x 30kg
+   - working set: 20 (pause for 15" on failure) x 30kg
+6. Cable front raise
+   - ignition set: 12 x 6kg
+   - working set: 20 (pause for 15" on failure) x 6kg
+7. Face pulls
+   - UF with overhead press x 15 + Until 20 normal x 15
+8. Stretching
+   - lying quad stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 3 x 15" per leg
+   - shoulder band mobility exercise: 3 x 8
+   - stick stretch of shoulder: 3 x 30" hold per arm
+
 ## 2.2.
 
 1. Front squats

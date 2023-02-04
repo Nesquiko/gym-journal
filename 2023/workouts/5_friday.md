@@ -1,3 +1,7 @@
+## 10.2.
+
+Nothing, I have race tomorrow
+
 ## 3.2.
 
 1. Deadlift with belt
