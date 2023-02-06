@@ -1,27 +1,25 @@
 ## 6.2.
 
 1. Box squats with belt
-   - box around parallel
-   - work up to 3 x 4 x 140kg
+   - the plan was 3x4 but, once again I was scared that I will fail, and had no spotter
+   - pyramid from 3 to 1 with 140kg
    - rest in-between: 2'
 2. Squats with belt
-   - The form wasn't best, but all were at least parallel
-   - working sets: 3 x 10 x 100kg
+   - this was good, my lower back was dead, and my quads were working hard
+   - working sets: 3 x 8 x 100kg
    - rest in-between: 2'
-3. Back lunges
-   - these are so uncomfortable, but really worth it
-   - working sets: 4 x 5 per leg x 30kg in both hand
-   - rest in-between: 1'
-4. One leg seated calf raises
+3. One leg seated calf raises
+   - I feel like I am starting to have more control in my right leg
    - working sets: 4 x 15 per leg + 10 with right x 20kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
-5. Seated calf raises
-   - working sets: 4 x 20 x 50kg
+4. Standing calf raises
+   - got the blood flowing, moderate burn
+   - working sets: 4 x 20 x 40kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
-6. Stretching
+5. Stretching
    - standing quads stretch: 2 x 30" per leg
-   - leg over leg glute stretch: 3 x 15" per leg
-   - calf stretch against wall: 2 x 20" per calf
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
 
 ## 30.1.
 
