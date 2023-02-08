@@ -1,15 +1,19 @@
 ## 8.2.
 
 1. Pullups
+   - Grindy, not all were chin above bar
    - working sets: 4 x 5 x 12kg
    - rest in-between: 2'
 2. One arm dumbbell row
+   - Mixed feelings, light muscle fatigue
    - working sets: 4 x 8 x 30kg
    - rest in-between: 1'
 3. One arm seated rows
+   - Left arm is not as controlled as right one
    - working sets: 4 x 12 x 30kg
    - rest in-between: 1'
 4. Ez bar bicep curl
+   - moderate burn, high muscle fatigue
    - working sets: 5 x 10 x 10kg per side
    - rest in-between: 30"
 5. Stretching
