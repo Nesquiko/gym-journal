@@ -1,29 +1,39 @@
 ## 9.2.
 
-1. Front squats
-   - working sets: 3 x 2 x 90kg
+1. Overhead press
+   - Did 40kg but with dead stop at the shoulders
+   - working set: 3 x 4 x 40kg
    - rest in-between: 1'
 2. Overhead press
-   - working set: 3 x 4 x 50kg
-   - rest in-between: 1'
-3. Overhead press
+   - This was grindy, my front delts were burning
    - ignition set: 12 x 35kg
    - working set: 20 (pause for 15" on failure) x 35kg
-4. Dumbbell lateral raise
+3. Dumbbell lateral raise
+   - even with 5kgs the 5" were infinite
    - ignition set: 12 x 12.5kg
-   - working set: 20 (hold for 5", pause for 15" on failure) x 6kg
-5. Dumbbell hip hugger
-   - I felt upper traps and rear delt, but I should increase weight
-   - ignition set: 12 x 30kg
-   - working set: 20 (pause for 15" on failure) x 30kg
-6. Cable front raise
-   - ignition set: 12 x 6kg
-   - working set: 20 (pause for 15" on failure) x 6kg
-7. Face pulls
-   - UF with overhead press x 15 + Until 20 normal x 15
-8. Stretching
+   - working set: 20 (hold for 5", pause for 15" on failure) x 5kg
+4. Dumbbell hip hugger
+   - This week I felt more this exercise than last week
+   - ignition set: 12 x 22.5kg
+   - working set: 20 (pause for 15" on failure) x 22.50kg
+5. Cable front raise
+   - My front delts are fried
+   - ignition set: 12 x 8kg
+   - working set: 20 (pause for 15" on failure) x 8kg
+6. Face pulls
+   - The overhead part only worked with 10kgs
+   - UF with overhead press x 10kg + Until 20 normal x 10kg
+7. Hanging leg raises
+   - The height wasn't the best, felt more contraction
+   - working sets: 4 x 10
+   - rest in-between: 30"
+8. Crunch on floor
+   - High burn, upper abs were even starting to cramp
+   - working sets: 4 x 20
+   - rest in-between: 30"
+9. Stretching
    - lying quad stretch: 2 x 30" per leg
-   - leg over leg glute stretch: 3 x 15" per leg
+   - abs stretch: 3 x 15"
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
 
