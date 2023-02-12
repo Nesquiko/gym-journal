@@ -1,3 +1,30 @@
+## 14.2.
+
+1. Bench press
+   - working sets: work up to 1x80kg
+2. Bench press
+   - working sets: 3 x 10 x 60kg
+   - rest in-between: 2'
+3. Incline dumbbell bench press
+   - ignition set: 12 reps with as heaviest weight as I can (around 25kg I would say)
+   - 20 reps with 15" pause when I hit failure
+4. Dips
+   - pyramid from 18 to 1
+   - rest in-between: 1'
+5. Face pulls
+   - working sets: 4 x 15 x 12.5kg
+   - rest in-between: 30"
+6. Hanging leg raises
+   - working sets: 4 x 10
+   - rest in-between: 30"
+7. Crunch
+   - working sets: 4 x 20
+   - rest in-between: 30"
+8. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - Jesus with trx: 2 x 30"
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 7.2.
 
 1. Bench press
