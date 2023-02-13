@@ -1,17 +1,22 @@
 ## 13.2.
 
 1. Squats with belt
+   - wasn't feeling it, but I calmed myself and did it, I would say it was parallel
    - work up to 1 x 140kg
 2. Squats with belt
+   - these were parallel or above, but this wasn't a problem
    - working sets: 2 x 4 x 120kg
    - rest in-between: 2'
 3. Back lunges
+   - As always, my legs and glutes are dead
    - working sets: 4 x 5 per leg x 30kg in both hand
    - rest in-between: 1'
 4. One leg seated calf raises
-   - working sets: 4 x 15 per leg + 10 with right x 25kg
+   - high muscle fatigue, light burn
+   - working sets: 4 x 15 per leg + 8 with right x 25kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
 5. Standing calf raises
+   - strong burn, I felt like right leg is catching up to left one
    - working sets: 4 x 20 x 60kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
 6. Stretching
