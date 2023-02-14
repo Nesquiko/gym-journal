@@ -1,28 +1,25 @@
 ## 14.2.
 
 1. Bench press
+   - Ass came of the bench...
    - working sets: work up to 1x80kg
 2. Bench press
+   - Pecs weren't burning as previous week
    - working sets: 3 x 10 x 60kg
    - rest in-between: 2'
-3. Incline dumbbell bench press
-   - ignition set: 12 reps with as heaviest weight as I can (around 25kg I would say)
-   - 20 reps with 15" pause when I hit failure
-4. Dips
-   - pyramid from 18 to 1
+3. Dips
+   - The first 2 sets killed me, couldn't continue with pyramid
+   - working sets: 18, 17, 16, UF, UF
+   - rest in-between: 1'
+4. Cable crossover
+   - working sets: 10 x (8, 10, 12, 14kg)
    - rest in-between: 1'
 5. Face pulls
-   - working sets: 4 x 15 x 12.5kg
+   - Burning started in 1st set
+   - working sets: 4 x 15 x 12kg
    - rest in-between: 30"
-6. Hanging leg raises
-   - working sets: 4 x 10
-   - rest in-between: 30"
-7. Crunch
-   - working sets: 4 x 20
-   - rest in-between: 30"
-8. Stretching
+6. Stretching
    - chest stretch against wall: 2 x 30" per arm
-   - Jesus with trx: 2 x 30"
    - elbow over head stretch: 2 x 30" per arm
 
 ## 7.2.
