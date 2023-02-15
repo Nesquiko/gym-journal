@@ -1,16 +1,20 @@
 ## 15.2.
 
 1. Pullups
+   - This was grind but did it
    - working sets: 3 x 6 x 12kg
    - rest in-between: 2'
 2. One arm dumbbell row
+   - I feel more stability in my stance and more control in left arm
    - working sets: 5 x 8 x 30kg
    - rest in-between: 1'
 3. One arm seated rows with **HOLD**
+   - the hold part kicked my back, moderate burn in back but not in biceps
    - working sets: 4 x 12 x 25kg
    - rest in-between: 1'
-4. Incline dumbbell bicep curls
-   - working sets: 5 x (UF x 10kg + UF x 7.5kg)
+4. Ez bar biceps curl
+   - Felt strong, 15kg for 5 is doable
+   - working sets: 4 x 8 x 12.5 per side
    - rest in-between: 1'
 5. Stretching
    - on knees lats stretch: 2 x 15" per direction
