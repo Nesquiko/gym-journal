@@ -1,29 +1,38 @@
-## 9.2.
+## 16.2.
 
 1. Front squats
+   - went smoothly, even depth was good
    - working sets: 2 x 2 x 90kg
    - rest in-between: 1'
 2. Overhead press
+   - grindy, but did it
    - working set: 2 x 3 x 50kg
-   - rest in-between: 1'
+   - rest in-between: 2'
 3. Overhead press
+   - I felt stronger than last week, but the burn was there, and pretty strong
    - ignition set: 12 x 35kg
    - working set: 20 (pause for 15" on failure) x 35kg
 4. Dumbbell lateral raise
-   - ignition set: 12 x 15kg
+   - moderate burn with the 6kgs
+   - ignition set: 12 x 12.5kg
    - working set: 20 (hold for 5", pause for 15" on failure) x 6kg
 5. Dumbbell hip hugger
+   - moved my hands on the outside of the hips and another set of muscles lit up
    - ignition set: 12 x 25kg
    - working set: 20 (pause for 15" on failure) x 25kg
 6. Cable front raise
+   - high burn, add stretch on eccentric
    - ignition set: 12 x 8kg
    - working set: 20 (pause for 15" on failure) x 8kg
 7. Face pulls
-   - UF with overhead press x 12.5kg + Until 20 normal x 10kg
+   - tried with 12kgs and did 6 reps on the overhead part
+   - UF with overhead press x 12kg + Until 20 normal x 12kg
 8. Hanging leg raises
+   - feel imbalanced with legs
    - working sets: 4 x 10
    - rest in-between: 30"
 9. Crunch on floor
+   - strong burn
    - working sets: 4 x 20
    - rest in-between: 30"
 10. Stretching
