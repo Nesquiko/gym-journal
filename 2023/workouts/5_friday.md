@@ -1,25 +1,19 @@
 ## 17.2.
 
 1. Deadlift with belt
+   - comfortably
    - working sets: work up to 1 x 140kg
 2. Deadlift with belt
+   - strength was there, moved smoothly
    - working sets: 3 x 3 x 130kg
    - rest in-between: 2'
 3. Hyperextensions
+   - My glutes and hams are burning
    - working sets: 5 x 12
    - rest in-between: 30"
-4. Leg raises
-   - working sets: 4 x 15
-   - rest in-between: 30"
-5. Crunch on floor
-   - working sets: 4 x 20
-   - rest in-between: 30"
-6. Stretching
+4. Stretching
    - lying bend leg on other side stretch: 3 x 15" per side
    - hamstring strecth with band: 3 x 30" per side
-   - abs stretch: 3 x 15"
-   - lying quad stretch: 2 x 30" per leg
-   - calf stretch against wall: 2 x 30" per calf
 
 ## 10.2.
 
