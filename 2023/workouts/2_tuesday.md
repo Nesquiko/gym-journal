@@ -1,3 +1,26 @@
+## 21.2.
+
+1. Dumbbell bench press
+   - working sets: 4 x 5 x ???
+   - rest in-between: 30"
+2. Bench press
+   - working sets: 3 x 10 x 60kg
+   - rest in-between: 2'
+3. Cable crossover
+   - working sets: 4 x 10 x 14kg
+   - rest in-between: 1'
+4. Dips
+   - pyramid from 15 to 1
+   - rest in-between: 1'
+5. Face pulls
+   - Burning started in 1st set
+   - working sets: 4 x 15 x 12kg
+   - rest in-between: 30"
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - Jesus with trx: 2 x 30"
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 14.2.
 
 1. Bench press

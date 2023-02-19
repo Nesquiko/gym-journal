@@ -1,3 +1,21 @@
+## 20.2.
+
+1. Squats with belt
+   - work up to 1 x 140kg
+2. Squats with belt
+   - working sets: 3 x 2 x 130kg
+   - rest in-between: 2'
+3. One leg seated calf raises
+   - working sets: 4 x 15 per leg + 8 with right x 25kg
+   - rest in-between: stretch calves 2 x 8' per leg + 30"
+4. Standing calf raises
+   - working sets: 4 x 20 x 70kg
+   - rest in-between: stretch calves 2 x 8' per leg + 30"
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 13.2.
 
 1. Squats with belt
