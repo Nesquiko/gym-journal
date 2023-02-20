@@ -1,17 +1,21 @@
 ## 20.2.
 
+I'm not happy, felt really weak, I don't know why... Maybe try to come 1h later
+next week?
+
 1. Squats with belt
-   - work up to 1 x 140kg
-2. Squats with belt
-   - working sets: 3 x 2 x 130kg
+   - the depth wasn't even parallel
+   - working sets: 2 x 2 x 130kg
    - rest in-between: 2'
-3. One leg seated calf raises
+2. One leg seated calf raises
+   - both legs were weak, did it, but the range wasn't greatest
    - working sets: 4 x 15 per leg + 8 with right x 25kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
-4. Standing calf raises
+3. Standing calf raises
+   - burn was there, also high muscle fatigue
    - working sets: 4 x 20 x 70kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
-5. Stretching
+4. Stretching
    - standing quads stretch: 2 x 30" per leg
    - leg over leg glute stretch: 2 x 30" per leg
    - calf stretch against wall: 2 x 30" per calf
