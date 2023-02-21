@@ -1,24 +1,21 @@
 ## 21.2.
 
-1. Dumbbell bench press
-   - working sets: 4 x 5 x ???
+1. Bench press
+   - Felt strong, lifted it without my lifting from bench
+   - working sets: work up to 1x80kg
+2. Dumbbell bench press
+   - I was suprised, could go for 37.5kg
+   - working sets: 5 x 30kg, 5 x 32.5kg, 2 x 5 x 35kg
    - rest in-between: 30"
-2. Bench press
+3. Bench press
+   - pecs were burning
    - working sets: 3 x 10 x 60kg
    - rest in-between: 2'
-3. Cable crossover
-   - working sets: 4 x 10 x 14kg
-   - rest in-between: 1'
 4. Dips
-   - pyramid from 15 to 1
+   - pyramid from 12 to 1
    - rest in-between: 1'
-5. Face pulls
-   - Burning started in 1st set
-   - working sets: 4 x 15 x 12kg
-   - rest in-between: 30"
-6. Stretching
+5. Stretching
    - chest stretch against wall: 2 x 30" per arm
-   - Jesus with trx: 2 x 30"
    - elbow over head stretch: 2 x 30" per arm
 
 ## 14.2.
