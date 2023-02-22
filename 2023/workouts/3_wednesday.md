@@ -1,15 +1,19 @@
 ## 22.2.
 
 1. Pullups
+   - felt weak, couldn't get 6 reps, got 5 and half
    - working sets: 4 x 6 x 12kg
    - rest in-between: 2'
 2. One arm dumbbell row
+   - to the end I started feeling muscle fatigue, but otherwise it went well
    - working sets: 4 x 8 x 32.5kg
    - rest in-between: 1'
 3. One arm seated rows with **HOLD**
-   - working sets: 4 x 12 x 30kg
+   - started failing the 30kgs, had to take breaks
+   - working sets: 4 x 10 x 30kg
    - rest in-between: 1'
 4. Ez bar biceps curl
+   - this was surprisingly easy
    - Felt strong, 15kg for 5 is doable
    - working sets: 4 x 5 x 15kg per side
    - rest in-between: 1'
