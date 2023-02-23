@@ -1,25 +1,32 @@
 ## 23.2.
 
 1. Front squats
+   - these were grindy, quads are really activated
    - working sets: 2 x 3 x 90kg
    - rest in-between: 1'
 2. Overhead press
+   - first set was clunky, but 2nd and 3rd were solid
    - working set: 3 x 3 x 50kg
    - rest in-between: 2'
 3. Overhead press
+   - my triceps were dead, also my shoulders were burning
    - ignition set: 12 x 35kg
    - working set: 20 (pause for 15" on failure) x 35kg
 4. Dumbbell lateral raise
+   - the 15kgs were heavy, but the 6kgs burned less than previously
    - ignition set: 12 x 15kg
    - working set: 20 (hold for 5", pause for 15" on failure) x 6kg
 5. Dumbbell hip hugger
-   - ignition set: 12 x 27.5kg
-   - working set: 20 (pause for 15" on failure) x 27.5kg
+   - my traps and rear delts were burning
+   - ignition set: 12 x 30kg
+   - working set: 20 (pause for 15" on failure) x 30kg
 6. Cable front raise
+   - got stronger on this, failed less times
    - ignition set: 12 x 8kg
    - working set: 20 (pause for 15" on failure) x 8kg
 7. Face pulls
-   - UF with overhead press x 12kg + Until 20 normal x 12kg
+   - this was a quick burner for the rear delts
+   - UF with overhead press x 12kg + Until 20 normal x 12.5kg
 8. Stretching
    - lying quad stretch: 2 x 30" per leg
    - shoulder band mobility exercise: 3 x 8
