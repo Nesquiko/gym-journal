@@ -1,12 +1,14 @@
 ## 24.2.
 
 1. Deadlift with belt
+   - form wasn't greatest, also grip started to fail, but lifted it
    - working sets: work up to 1 x 150kg
 2. Deadlift with belt
-   - strength was there, moved smoothly
-   - working sets: 2 x 2 x 140kg
+   - first rep in first set was solid, the second was pretty ugly as was the first in second set
+   - working sets: 2 x 140kg, 1 x 140kg
    - rest in-between: 2'
 3. Hyperextensions
+   - less burn than last week
    - working sets: 5 x 12
    - rest in-between: 30"
 4. Stretching
