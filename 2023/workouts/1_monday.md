@@ -1,3 +1,22 @@
+## 27.2.
+
+1. Squats with belt
+   - working sets: 2 x 140kg
+   - rest in-between: 2'
+1. Squats with belt
+   - working sets: 3 x 8 x 100kg
+   - rest in-between: 2'
+1. One leg seated calf raises toes out
+   - working sets: 4 x 15 per leg + 8 with right x 25kg
+   - rest in-between: stretch calves 2 x 8' per leg + 30"
+1. Leg press calf raises toes out
+   - working sets: 4 x 20 x 100kg
+   - rest in-between: stretch calves 2 x 8' per leg + 30"
+1. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 20.2.
 
 I'm not happy, felt really weak, I don't know why... Maybe try to come 1h later

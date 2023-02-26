@@ -1,3 +1,23 @@
+## 28.2.
+
+1. Bench press
+   - working sets: work up to 2 x 80kg
+2. Bench press
+   - working sets: 3 x 5 x 70kg
+   - rest in-between: 2'
+3. Incline dumbbell bench press
+   - working sets: 4 x 12 x 25kg
+   - rest in-between: 30"
+4. Dips
+   - working sets: 4 x 15
+   - rest in-between: 1'
+5. Face pulls
+   - working sets: 4 x 15 x 12.5kg
+   - rest in-between: 30"
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 21.2.
 
 1. Bench press
