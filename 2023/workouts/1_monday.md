@@ -1,18 +1,24 @@
 ## 27.2.
 
+Went 1 hour later, not on 6am but on 7am, and I felt really great.
+
 1. Squats with belt
+   - The depth was around parallel, but I think I can comfortably lift 140kg
    - working sets: 2 x 140kg
    - rest in-between: 2'
-1. Squats with belt
+2. Squats with belt
+   - Lower back was destroyed
    - working sets: 3 x 8 x 100kg
    - rest in-between: 2'
-1. One leg seated calf raises toes out
+3. One leg seated calf raises toes out
+   - My right inner calf is weak, nearly got cramp in it
    - working sets: 4 x 15 per leg + 8 with right x 25kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
-1. Leg press calf raises toes out
+4. Leg press calf raises toes out
+   - Didn't feel the inner calf as on the previous exercise, but nevertheless pretty good pump
    - working sets: 4 x 20 x 100kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
-1. Stretching
+5. Stretching
    - standing quads stretch: 2 x 30" per leg
    - leg over leg glute stretch: 2 x 30" per leg
    - calf stretch against wall: 2 x 30" per calf
