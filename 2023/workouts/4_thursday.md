@@ -1,27 +1,34 @@
 ## 2.3.
 
 1. Front squats
+   - Upper back caved in a litte
    - working sets: 2 x 1 x 100kg
    - rest in-between: 1'
 2. Overhead press
-   - working set: 3 x 4 x 50kg
+   - Didn't have strength for this one, barely did the 3 reps
+   - working set: 2 x 3 x 50kg
    - rest in-between: 2'
 3. Overhead press
+   - Shoulders were on fire
    - ignition set: 12 x 35kg
    - working set: 20 (pause for 15" on failure) x 35kg
 4. Dumbbell lateral raise
-   - ignition set: 12 x 15kg
+   - I must somehow up the intensity
+   - ignition set: 12 x 12.5kg
    - working set: 20 (hold for 5", pause for 15" on failure) x 7kg
 5. Dumbbell hip hugger
+   - My whole upper back was lit up
    - ignition set: 12 x 30kg
    - working set: 20 (pause for 15" on failure) x 30kg
-6. Cable front raise
+6. Plate front raise
+   - not as good as with cables
    - ignition set: 12 x 10kg
-   - working set: 20 (pause for 15" on failure) x 8kg
+   - working set: 20 (pause for 15" on failure) x 10kg
 7. Face pulls
    - UF with overhead press x 12.5kg + Until 20 normal x 12.5kg
 8. Stretching
    - lying quad stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
 
