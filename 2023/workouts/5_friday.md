@@ -1,8 +1,10 @@
 ## 3.3.
 
 1. Deadlift with belt
+   - The form was better, but still not good
    - working sets: work up to 1 x 150kg
 2. Deadlift with belt
+   - Did it! increase reps/sets
    - working sets: 2 x 2 x 140kg
    - rest in-between: 2'
 3. Hyperextensions
