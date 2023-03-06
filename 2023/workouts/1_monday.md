@@ -1,15 +1,19 @@
 ## 6.3.
 
 1. Box squats
+   - used box which was above parallel, but nevertheless they were grindy reps
    - working sets: 2 x 2 x 150kg
    - rest in-between: 2'
 2. Squats with belt
-   - working sets: 3 x 1 x 140kg
+   - These were easy after the 150kg, did them event with proper depth
+   - working sets: 2 x 1 x 140kg
    - rest in-between: 2'
 3. One leg seated calf raises toes out
+   - Felt stronger, at least my right leg felt so
    - working sets: 4 x 15 per leg + 8 with right x 25kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
 4. Standing calf raises
+   - Burn, pump, everything
    - working sets: 4 x 20 x 70kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
 5. Stretching
