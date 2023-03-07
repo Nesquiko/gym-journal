@@ -1,23 +1,26 @@
 ## 7.3.
 
 1. Bench press
-   - working sets: work up to 2 x 2 x 80kg
+   - Must keep increasing the reps, to get to 90kg
+   - working sets: work up to 2 x 80kg, 1 x 80kg
    - rest in-between: 2'
 2. Bench press
+   - Was smoother than previously, I'm stronger on this one
    - working sets: 3 x 10 x 60kg
    - rest in-between: 2'
 3. Incline dumbbell bench press
+   - Full range of motion got me, failed at around 6 reps
    - working sets: 4 x UF x 25kg
    - rest in-between: 30"
-4. Cable crossover
-   - working sets: 4 x 16 x 10kg
+4. Chest press
+   - I like the cable crossover more
+   - pyramid 30, 40, 50, 40, 30 kg x UF
    - rest in-between: 1'
 5. Face pulls
    - working sets: 4 x 15 x 12.5kg
    - rest in-between: 30"
 6. Stretching
    - chest stretch against wall: 2 x 30" per arm
-   - Jesus with trx: 2 x 30"
    - elbow over head stretch: 2 x 30" per arm
 
 ## 28.2.
