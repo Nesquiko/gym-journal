@@ -1,17 +1,21 @@
 ## 8.3.
 
 1. Pullups
-   - working sets: 4 x 6 x 12kg
+   - First 4 were strong and smooth
+   - working sets: 4 x 6 x 12.5kg
    - rest in-between: 2'
 2. One arm dumbbell row
+   - Getting stronger, even with left hand felt in control
    - working sets: 4 x 8 x 32.5kg
    - rest in-between: 1'
 3. Super set #1
+   - Good pump, moderate burn
    - exercises: one arm seated row, straight arm pushdowns
    - working sets: 4 x (10 per hand x 25kg + 15 x 20kg)
    - rest in-between: 30"
 4. Ez bar biceps curl
-   - working sets: 4 x 8 x 15kg per side
+   - I feel like switching to less weight and more reps will be better
+   - working sets: 4 x 6 x 15kg per side
    - rest in-between: 1'
 5. Stretching
    - on knees lats stretch: 2 x 15" per direction
