@@ -1,3 +1,24 @@
+## 14.3.
+
+1. Bench press
+   - working sets: 2 x 2 x 80kg
+   - rest in-between: 2'
+2. Bench press
+   - working sets: 3 x 10 x 60kg
+   - rest in-between: 2'
+3. Incline dumbbell bench press
+   - working sets: 4 x 15 x 20kg
+   - rest in-between: 30"
+4. Cable crossover
+   - working sets: 4 x 16 x 10kg
+   - rest in-between: 1'
+5. Face pulls
+   - working sets: 4 x 15 x 12.5kg
+   - rest in-between: 30"
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 7.3.
 
 1. Bench press

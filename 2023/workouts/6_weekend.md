@@ -1,4 +1,4 @@
-## 11.3. - 12.3.
+## 18.3. - 19.3.
 
 1. Chest stretch
    - 2 x 30" per side
@@ -14,6 +14,10 @@
    - 2 x 30" per side
 7. Hamstring stretch against band
    - per side 2 x 30" stretch
+
+## 11.3. - 12.3.
+
+I got sick, no gym
 
 ## 4.3. - 5.3.
 

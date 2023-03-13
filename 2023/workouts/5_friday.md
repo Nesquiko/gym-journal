@@ -1,4 +1,4 @@
-## 10.3.
+## 17.3.
 
 1. Deadlift with belt
    - working sets: work up to 1 x 150kg
@@ -8,6 +8,10 @@
 3. Stretching
    - lying bend leg on other side stretch: 3 x 15" per side
    - hamstring strecth with band: 3 x 30" per side
+
+## 10.3.
+
+I got sick, no gym
 
 ## 3.3.
 

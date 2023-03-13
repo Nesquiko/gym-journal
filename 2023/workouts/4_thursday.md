@@ -1,4 +1,4 @@
-## 9.3.
+## 16.3.
 
 1. Front squats
    - working sets: 1 x 110kg
@@ -20,6 +20,10 @@
    - calf stretch against wall: 2 x 30" per calf
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
+
+## 9.3.
+
+I got sick, no gym
 
 ## 2.3.
 
