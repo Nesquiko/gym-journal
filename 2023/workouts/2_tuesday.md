@@ -1,23 +1,32 @@
 ## 14.3.
 
 1. Bench press
+   - Moved legs more behind and was touching floor with heels, this helped a lot
    - working sets: 2 x 2 x 80kg
    - rest in-between: 2'
-2. Bench press
-   - working sets: 3 x 10 x 60kg
-   - rest in-between: 2'
+2. Dumbbell bench press
+   - I started to feel stronger mind muscle connection
+   - working sets: 4 x 6-10 x 30kg in each hand
+   - rest in-between: 30"
 3. Incline dumbbell bench press
-   - working sets: 4 x 15 x 20kg
+   - My UF rep range is very low, I'm not used to higher reps
+   - working sets: 4 x UF x 20kg
    - rest in-between: 30"
 4. Cable crossover
-   - working sets: 4 x 16 x 10kg
+   - As in previous, I'm not used to high reps, so UF was around 8
+   - working sets: 4 x UF x 10kg
    - rest in-between: 1'
 5. Face pulls
    - working sets: 4 x 15 x 12.5kg
    - rest in-between: 30"
-6. Stretching
+6. Triceps extensions
+   - working sets: 20 x 12.5kg, 20 x 15kg, 15 x 17.5kg
+   - rest in-between: 30"
+7. Abs
+   - working sets: 3 x (20 x crunch, 1' plank, 10 x leg raises)
+   - rest in-between: 1'
+8. Stretching
    - chest stretch against wall: 2 x 30" per arm
-   - elbow over head stretch: 2 x 30" per arm
 
 ## 7.3.
 
