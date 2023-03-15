@@ -1,23 +1,24 @@
 ## 15.3.
 
 1. Pullups
-   - working sets: 4 x 6 x 12.5kg
+   - It isn't getting any easier, what to do?
+   - working sets: 4 x 6 x 12kg
    - rest in-between: 2'
 2. One arm dumbbell row
+   - Used straps, core and back was lit up
    - working sets: 4 x 8 x 35kg
    - rest in-between: 1'
 3. Super set #1
-   - Good pump, moderate burn
+   - Good pump, the pushdowns burned a lot
    - exercises: one arm seated row with **HOLD**, straight arm pushdowns
    - working sets: 4 x (10 per hand x 25kg + 20 x 20kg)
    - rest in-between: 30"
 4. Ez bar biceps curl
+   - I like this more than, for now, pumped and hit failure in the end
    - working sets: 4 x 12 x 10kg per side
    - rest in-between: 1'
 5. Stretching
    - on knees lats stretch: 2 x 15" per direction
-   - bend to the side lat stretch: 3 x 15" per arm
-   - straight arms behind head against wall stretch: 3 x 30"
    - bicep stretch: 3 x 15" per arm
 
 ## 8.3.
