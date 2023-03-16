@@ -1,25 +1,34 @@
 ## 16.3.
 
-1. Front squats
-   - working sets: 1 x 110kg
-   - rest in-between: 1'
-2. Overhead press
+1. Overhead press
+   - Shoulders felt solid, core wasn't the most stable
    - working set: 2 x 3 x 50kg
    - rest in-between: 2'
-3. Overhead press
+2. Overhead press
+   - My tris and shoulders are burning
    - ignition set: 12 x 35kg
    - working set: 20 (pause for 15" on failure) x 35kg
-4. Dumbbell lateral raise
+3. Dumbbell lateral raise
+   - The final burner set was burning more with more ignition sets
    - ignition set: 3 x 12 x 12.5kg
-   - working set: 20 (hold for 5", pause for 15" on failure) x 6kg
-5. Dumbbell hip hugger
-   - ignition set: 3 x 12 x 30kg
+   - working set: 20 (hold for 5", pause for 15" on failure) x 7.5kg
+4. Dumbbell hip hugger
+   - 25s were enough
+   - ignition set: 3 x 12 x 25kg
    - working set: 20 (pause for 15" on failure) x 30kg
-6. Stretching
-   - lying quad stretch: 2 x 30" per leg
-   - calf stretch against wall: 2 x 30" per calf
+5. Cable front raise
+   - ignition set: 12 x 8kg
+   - working set: 20 (pause for 15" on failure) x 8kg
+6. Cable lateral raise
+   - Not as good as I remember, maybe more reps?
+   - working set: 12 per arm x 4kg, 2 x 12 per arm x 6kg
+7. Abs
+   - working sets: 3 x (20 x crunch, 10 x ab wheel, 10 x leg raises)
+   - rest in-between: 1'
+8. Stretching
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
+   - lying abs stretch: 3 x 15"
 
 ## 9.3.
 
