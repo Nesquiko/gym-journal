@@ -1,13 +1,19 @@
 ## 17.3.
 
 1. Deadlift with belt
-   - working sets: work up to 1 x 150kg
+   - I don't know how, but I did it, also did 1 x 140kg after and that was flying
+   - working sets: 3 x 3 x 140kg
 2. Hyperextensions
+   - Burns less than prevously
    - working sets: 5 x 12
    - rest in-between: 30"
-3. Stretching
+3. Abs
+   - working sets: 3 x (20 x crunch, 10 x ab wheel, 10 x leg raises)
+   - rest in-between: 1'
+4. Stretching
    - lying bend leg on other side stretch: 3 x 15" per side
-   - hamstring strecth with band: 3 x 30" per side
+   - hamstring: 2 x 30" per side
+   - lying abs stretch: 3 x 15"
 
 ## 10.3.
 
