@@ -1,3 +1,27 @@
+## 20.3.
+
+1. Box squats
+   - working sets: 2 x 2 x 150kg
+2. Squats with belt
+   - working sets: 2 x 1 x 140kg
+   - rest in-between: 2'
+3. Back lunges
+   - working sets: 4 x 16 x 20kg
+   - rest in-between: 1'
+4. Leg extenstions
+   - working sets: 4 x 20 x ???
+   - rest in-between: 1'
+5. One leg seated calf raises toes out
+   - working sets: 4 x 15 per leg + 8 with right x 30kg
+   - rest in-between: stretch calves 2 x 8' per leg + 30"
+6. Standing calf raises
+   - working sets: 4 x 20 x 70kg
+   - rest in-between: stretch calves 2 x 8' per leg + 30"
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 13.3.
 
 Feeling better, but still no gym today
