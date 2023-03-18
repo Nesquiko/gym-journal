@@ -1,18 +1,22 @@
 ## 18.3. - 19.3.
 
-1. Chest stretch
+1. Head side stretch
+   - per side 3 x 15"
+2. Head down to side stretch
+   - per side 3 x 15"
+3. Chest stretch
    - 2 x 30" per side
-2. Elbow over head tricep and lat stretch
+4. Elbow over head tricep and lat stretch
    - 2 x 30" per side
-3. On knees lats stretch (to the front, left, right)
+5. On knees lats stretch (to the front, left, right)
    - 2 x 15" per direction
-4. Lying abs stretch
+6. Lying abs stretch
    - 4 x 15"
-5. Lying quad stretch
+7. Lying quad stretch
    - 2 x 30" per leg
-6. Lying on back glute stretch
+8. Lying on back glute stretch
    - 2 x 30" per side
-7. Hamstring stretch against band
+9. Hamstring stretch against band
    - per side 2 x 30" stretch
 
 ## 11.3. - 12.3.
