@@ -1,21 +1,27 @@
 ## 20.3.
 
 1. Box squats
-   - working sets: 2 x 2 x 150kg
+   - Last weeks pause didn't help my confidence, 140kg was mentally heavy
+   - working sets: 2 x 140kg
 2. Squats with belt
-   - working sets: 2 x 1 x 140kg
+   - Had to reassure myself that I can at least lift 120kg with confidence
+   - working sets: 2 x 3 x 120kg
    - rest in-between: 2'
 3. Back lunges
+   - Out of breath, legs were starting to shake
    - working sets: 4 x 16 x 20kg
    - rest in-between: 1'
 4. Leg extenstions
-   - working sets: 4 x 20 x ???
+   - Focused on contraction and burn, tha last set was hell
+   - working sets: 4 x 20 x (30kg, 40kg, 50kg, 60kg)
    - rest in-between: 1'
 5. One leg seated calf raises toes out
-   - working sets: 4 x 15 per leg + 8 with right x 30kg
+   - 30kgs were heavy for 15 reps
+   - working sets: 4 x 10 per leg x 30kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
-6. Standing calf raises
-   - working sets: 4 x 20 x 70kg
+6. Seated calf raises toes out
+   - The burn was good, also I started feeling stronger contractions in my right calf
+   - working sets: 4 x 20 x 40kg
    - rest in-between: stretch calves 2 x 8' per leg + 30"
 7. Stretching
    - standing quads stretch: 2 x 30" per leg
