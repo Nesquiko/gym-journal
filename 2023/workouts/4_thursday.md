@@ -1,28 +1,33 @@
 ## 23.3.
 
 1. Overhead press
-   - working set: 2 x 4 x 50kg
+   - had to cheat on the 4th set, and in the 2nd set had to cheat on the 3rd
+   - working set: 4 x 50kg, 3 x 50kg
    - rest in-between: 2'
 2. Overhead press
+   - This still burns as hell
    - ignition set: 12 x 35kg
    - working set: 20 (pause for 15" on failure) x 35kg
 3. Dumbbell lateral raise
+   - My traps and side delts are burning
    - working sets: 4 x 15 x 10kg
-   - burner set: 20 (hold for 5", pause for 15" on failure) x 7.5kg
+   - burner set: 20 (hold for 5", pause for 15" on failure) x 6kg
    - rest in-between: 30"
 4. Dumbbell hip hugger
+   - Shiiit, my traps and rear delts are burning
    - working sets: 4 x 15 x 25kg
    - rest in-between: 30"
 5. Cable front raise
+   - This was challenging, hit failure few times
    - working sets: 4 x 12 x 8kg
    - burner set: 20 (pause for 15" on failure) x 8kg
    - rest in-between: 30"
-6. Cable lateral raise
-   - Not as good as I remember, maybe more reps?
-   - working set: 12 per arm x 4kg, 2 x 12 per arm x 6kg
-7. Face pulls
-   - working sets: 4 x 15 x 15kg
+6. Face pulls
+   - working sets: 4 x 12 x 15kg
    - rest in-between: 30"
+7. Abs
+   - working sets: 3 x (20 x crunch, 10 x ab wheel, 10 x leg raises)
+   - rest in-between: 1'
 8. Stretching
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
