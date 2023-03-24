@@ -1,11 +1,16 @@
 ## 24.3.
 
 1. Deadlift with belt
-   - working sets: 2 x 2 x 150kg
-2. Hyperextensions
-   - working sets: 5 x 12
+   - Strength for double wasn't there, so only did singles
+   - working sets: 2 x 1 x 150kg
+2. Deadlift with belt
+   - God the blood flowing
+   - working sets: 2 x 5 x 120kg
+3. Hyperextensions
+   - My lower back was destroyed, so only did 4 sets
+   - working sets: 4 x 12
    - rest in-between: 30"
-3. Stretching
+4. Stretching
    - lying bend leg on other side stretch: 3 x 15" per side
    - hamstring: 2 x 30" per side
 
