@@ -1,3 +1,21 @@
+## 29.3.
+
+1. Pullups
+   - working sets: 3 x 5 x 16kg
+   - rest in-between: 2'
+2. One arm dumbbell row
+   - working sets: 4 x 8 x 35kg
+   - rest in-between: 1'
+3. Super set #1
+   - exercises: one arm seated row with **HOLD**, straight arm pushdowns
+   - working sets: 4 x (10 per hand x 30kg + 20 x 20kg)
+   - rest in-between: 30"
+4. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - bend to the side lat stretch: 3 x 15" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 22.3.
 
 1. Pullups

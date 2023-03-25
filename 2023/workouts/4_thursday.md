@@ -1,3 +1,29 @@
+## 24.3.
+
+1. Overhead press
+   - working set: 2 x 4 x 50kg
+   - rest in-between: 2'
+2. Overhead press
+   - ignition set: 12 x 35kg
+   - working set: 20 (pause for 15" on failure) x 35kg
+3. Dumbbell lateral raise
+   - working sets: 4 x 15 x 10kg
+   - burner set: 20 (hold for 5", pause for 15" on failure) x 6kg
+   - rest in-between: 30"
+4. Dumbbell hip hugger
+   - working sets: 4 x 15 x 25kg
+   - rest in-between: 30"
+5. Cable front raise
+   - working sets: 4 x 12 x 8kg
+   - burner set: 20 (pause for 15" on failure) x 8kg
+   - rest in-between: 30"
+6. Face pulls
+   - working sets: 4 x 12 x 15kg
+   - rest in-between: 30"
+7. Stretching
+   - shoulder band mobility exercise: 3 x 8
+   - stick stretch of shoulder: 3 x 30" hold per arm
+
 ## 23.3.
 
 1. Overhead press

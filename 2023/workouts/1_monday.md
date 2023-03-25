@@ -1,3 +1,28 @@
+## 27.3.
+
+1. Squats with belt
+   - working sets: 2 x 2 x 140kg
+   - rest in-between: 2'
+2. Back lunges
+   - working sets: 4 x 16 x 20kg
+   - rest in-between: 1'
+3. Bulgarian split squats
+   - working sets: 3 x 10 per leg
+   - rest in-between: 1'
+4. Leg extenstions
+   - working sets: 4 x 20 x 60kg
+   - rest in-between: 1'
+5. One leg seated calf raises toes out
+   - working sets: 4 x 10 per leg x 30kg
+   - rest in-between: stretch calves 2 x 8' per leg + 30"
+6. Seated calf raises toes out
+   - working sets: 4 x 20 x 40kg
+   - rest in-between: stretch calves 2 x 8' per leg + 30"
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 20.3.
 
 1. Box squats
