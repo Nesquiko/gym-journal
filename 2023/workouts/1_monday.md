@@ -1,23 +1,28 @@
 ## 27.3.
 
 1. Squats with belt
-   - working sets: 2 x 2 x 140kg
-   - rest in-between: 2'
-2. Back lunges
-   - working sets: 4 x 16 x 20kg
-   - rest in-between: 1'
+   - I must squat more, more reps and more sets, because I am loosing confidence,
+     and fail on higher weights
+   - working sets: 3 x 2 x 130kg
+2. Squats with belt
+   - The previous statement showed that it is true here, I wanted 8 reps,
+     barely did 6, then the 2nd set a nice guy gave me a spot, so did 6.5 reps
+   - working sets: 6 x 100kg, 7 (UF) x 100kg
 3. Bulgarian split squats
-   - working sets: 3 x 10 per leg
+   - Legs are burning and shaking
+   - working sets: 3 x 15 per leg
    - rest in-between: 1'
-4. Leg extenstions
-   - working sets: 4 x 20 x 60kg
-   - rest in-between: 1'
-5. One leg seated calf raises toes out
-   - working sets: 4 x 10 per leg x 30kg
-   - rest in-between: stretch calves 2 x 8' per leg + 30"
-6. Seated calf raises toes out
+4. One leg seated calf raises toes out
+   - right calf is destroyed
+   - working sets: 4 x 15 per leg + 8 with right x 25kg
+   - rest in-between: stretch calves 8' per leg + 30"
+5. Seated calf raises toes out
+   - I can push even through the burn on this one, good job! Calve pump as big as Arnold
    - working sets: 4 x 20 x 40kg
-   - rest in-between: stretch calves 2 x 8' per leg + 30"
+   - rest in-between: stretch calves 8' per leg + 30"
+6. Abs
+   - working sets: 3 x (20 x crunch, 20 x russian twist with 8kg, 10 x ab wheel)
+   - rest in-between: 1'
 7. Stretching
    - standing quads stretch: 2 x 30" per leg
    - leg over leg glute stretch: 2 x 30" per leg
