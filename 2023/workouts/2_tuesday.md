@@ -1,22 +1,33 @@
 ## 28.3.
 
 1. Bench press
-   - working sets: 3 x 3 x 80kg
-2. Dumbbell bench press **FULL RANGE**
+   - I did it! Really happy that I'm not stuck on 2 x 80kg
+   - working sets: 2 x 3 x 80kg
+2. Bench press
+   - From yesterday I learned that I need reps on squats, so applying it also to bench press
+   - working sets: 3 x 5 x 70kg
+3. Dumbbell bench press **FULL RANGE**
+   - I also contracted pecs in in-between sets, and my pecs are pumped and destroyed
    - working sets: 4 x UF x 25kg in each hand
    - rest in-between: 1'
-3. Incline dumbbell bench press **FULL RANGE**
+4. Incline dumbbell bench press **FULL RANGE**
+   - Also contracted in-between sets, learned to hold and push when at the failure is near
    - working sets: 4 x UF x 20kg
    - rest in-between: 1'
-4. Cable crossover
-   - working sets: 4 x UF x 10kg
-   - rest in-between: 1'
-5. Face pulls
+5. Cable triceps extensions
+   - The final set burned a lot
+   - working sets: 4 x 20 x (12.5kg, 15kg, 17.5kg, 20kg)
+   - rest in-between: 30"
+6. Face pulls
    - working sets: 4 x 15 x 15kg
    - rest in-between: 30"
-6. Stretching
+7. Abs
+   - working sets: 3 x (20 x crunch, with 8kg 20 x russian twist with 8kg, 10 x ab wheel)
+   - rest in-between: 1'
+8. Stretching
    - chest stretch against wall: 2 x 30" per arm
    - elbow over head stretch: 2 x 30" per arm
+   - lying abs stretch: 3 x 15"
 
 ## 21.3.
 
