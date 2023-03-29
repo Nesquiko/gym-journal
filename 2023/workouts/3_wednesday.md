@@ -1,18 +1,27 @@
 ## 29.3.
 
 1. Pullups
-   - working sets: 3 x 5 x 16kg
-   - rest in-between: 2'
+   - My back is destroyed from morning swim, so only pulled 12kg
+   - working sets: 3 x 5 x 12kg
+   - rest in-between: 1'
 2. One arm dumbbell row
+   - Starting to feel solid with this weight
    - working sets: 4 x 8 x 35kg
    - rest in-between: 1'
-3. Super set #1
-   - exercises: one arm seated row with **HOLD**, straight arm pushdowns
-   - working sets: 4 x (10 per hand x 30kg + 20 x 20kg)
+3. One arm seated row with **HOLD**,
+   - Used straps and concentrated on the movement, left is cathing to right
+   - working sets: 4 x 15 per hand x 20kg
    - rest in-between: 30"
-4. Stretching
+4. Pull over
+   - This was tough, even my pecs were giving up
+   - working sets: 4 x 15 x 25kg
+   - rest in-between: 30"
+5. Ez bar biceps curl
+   - Started to fail at the 3rd set, first 2 were moving smoothly
+   - working sets: 4 x 12 x 10kg per side
+   - rest in-between: 30"
+6. Stretching
    - on knees lats stretch: 2 x 15" per direction
-   - bend to the side lat stretch: 3 x 15" per arm
    - straight arms behind head against wall stretch: 3 x 30"
    - bicep stretch: 3 x 15" per arm
 
