@@ -20,7 +20,10 @@
    - Started to fail at the 3rd set, first 2 were moving smoothly
    - working sets: 4 x 12 x 10kg per side
    - rest in-between: 30"
-6. Stretching
+6. Abs
+   - working sets: 3 x (20 x crunch, with 8kg 20 x russian twist with 8kg, 10 x ab wheel)
+   - rest in-between: 1'
+7. Stretching
    - on knees lats stretch: 2 x 15" per direction
    - straight arms behind head against wall stretch: 3 x 30"
    - bicep stretch: 3 x 15" per arm

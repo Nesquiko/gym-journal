@@ -1,26 +1,32 @@
 ## 24.3.
 
 1. Overhead press
-   - working set: 2 x 4 x 50kg
+   - Dont know if loosing strength, or the pullover from yesterday had effect on this one, because my tris are sore
+   - working set: 2 x 3 x 50kg, 1 x 2 x 50kg
    - rest in-between: 2'
 2. Overhead press
+   - I felt less burn, but muscle fatigue was still high
    - ignition set: 12 x 35kg
    - working set: 20 (pause for 15" on failure) x 35kg
 3. Dumbbell lateral raise
+   - After the working sets, my left shoulder had a pinching pain in the area of rear delt, so skipped the burner
    - working sets: 4 x 15 x 10kg
-   - burner set: 20 (hold for 5", pause for 15" on failure) x 6kg
    - rest in-between: 30"
-4. Dumbbell hip hugger
-   - working sets: 4 x 15 x 25kg
+4. Dumbbell rear delt row
+   - This burns, also I must try this with **pause**
+   - working sets: 4 x 15 x 6kg
    - rest in-between: 30"
 5. Cable front raise
+   - The left shoulder is acting weird, skipped burner
    - working sets: 4 x 12 x 8kg
-   - burner set: 20 (pause for 15" on failure) x 8kg
    - rest in-between: 30"
 6. Face pulls
    - working sets: 4 x 12 x 15kg
    - rest in-between: 30"
-7. Stretching
+7. Abs
+   - working sets: 3 x (20 x crunch, with 8kg 20 x russian twist with 8kg, 10 x ab wheel)
+   - rest in-between: 1'
+8. Stretching
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
 
