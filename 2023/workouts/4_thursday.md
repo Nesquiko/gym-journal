@@ -1,4 +1,4 @@
-## 24.3.
+## 30.3.
 
 1. Overhead press
    - Dont know if loosing strength, or the pullover from yesterday had effect on this one, because my tris are sore

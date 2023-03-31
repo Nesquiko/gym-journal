@@ -1,13 +1,19 @@
-## 30.3.
+## 31.3.
+
+Today I have a exam, so my mind was somewhere else. Also my legs are destroyed
+from swims this week.
 
 1. Deadlift with belt
-   - working sets: 2 x 2 x 150kg
-2. Hyperextensions
-   - working sets: 4 x 12
-   - rest in-between: 30"
+   - this was a warm up, wanted 3 reps, but failed, my legs are fried from the week
+   - working sets: 2 x 140kg
+2. Deadlift with belt
+   - Applying the principle from squats (that I need more reps), couldn't do heavy today,
+     so beat myself on this
+   - working sets: 3 x 5 x 120kg
 3. Stretching
    - lying bend leg on other side stretch: 3 x 15" per side
    - hamstring: 2 x 30" per side
+4. Roller
 
 ## 24.3.
 
