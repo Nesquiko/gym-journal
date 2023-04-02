@@ -1,3 +1,21 @@
+## 6.4.
+
+1. Overhead press
+   - working set: 3 x 8 x 40kg
+2. Seated dumbbell overhead press
+   - working set: (15, 12, 10, 8, 8, 8) x ???kg
+3. Landmin press
+   - working set: 4 x 10-12 per arm x ???
+4. Machine lateral raise, one arm stopped, other reps
+   - working set: 4 x 15 per arm x 10kg
+5. Dumbbell lateral raise with hold
+   - working set: 4 x 10 x 7.5kg
+6. Face pulls
+   - working sets: 4 x 15 x 15kg
+7. Stretching
+   - shoulder band mobility exercise: 3 x 8
+   - stick stretch of shoulder: 3 x 30" hold per arm
+
 ## 30.3.
 
 1. Overhead press

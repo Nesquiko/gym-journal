@@ -1,3 +1,16 @@
+## 7.4.
+
+1. Deadlift with belt
+   - working sets: 5 x 5 x 130kg
+2. Dumbberll stiff legged deadlift
+   - working sets: 4 x 10 x 30kg in each hand
+3. Hyperextensions
+   - working sets: 4 x 12
+   - rest in-between: 30"
+4. Stretching
+   - lying bend leg on other side stretch: 3 x 15" per side
+   - hamstring: 2 x 30" per side
+
 ## 31.3.
 
 Today I have a exam, so my mind was somewhere else. Also my legs are destroyed

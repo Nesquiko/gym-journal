@@ -1,3 +1,19 @@
+## 5.4.
+
+1. One arm dumbbell row
+   - working sets: 4 x 8 x 35kg
+2. Pullups
+   - working sets: 4 x 8
+3. Super set
+   - exercises: Lat pulldowns neutral grip, Dumbbell pullover
+   - working sets: 4 x (15 x 45kg + 15 x 25kg)
+4. Dumbbell spider curls
+   - working sets: 4 x (15 x 45kg + 15 x 25kg)
+5. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 29.3.
 
 1. Pullups
