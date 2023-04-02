@@ -19,6 +19,34 @@
 9. Hamstring stretch against band
    - per side 2 x 30" stretch
 
+### 1.4.
+
+I went to gym, and because my wednesdays are short, I hit back and biceps. I
+also tried new pre-workout and maaaaaan, my back and biceps nearly exploded.
+Since it was weekend, I had time, I didn't pay attention to the rests in-between
+sets.
+
+1. Barbell bent over row
+   - working sets: 4 x 12 x 50kg
+2. Dumbbell row
+   - working sets: 4 x 10 per arm x 35kg
+3. Lat pulldowns, close underhand grip
+   - working sets: 3 x 10 x 55kg
+4. One arm seated row
+   - working sets: 4 x 10 per arm x 25kg
+5. Dumbbell spider curls
+   - working sets: 3 x UF x 10kg
+6. Ez bar overhand curls
+   - working sets: 3 x UF x 5kg per side
+7. Abs
+   - working sets: 3 x (20 x crunch, with 8kg 20 x russian twist with 8kg, 10 x ab wheel)
+   - rest in-between: 1'
+8. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 25.3. - 26.3.
 
 1. Head side stretch
