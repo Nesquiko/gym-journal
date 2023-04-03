@@ -1,20 +1,25 @@
 ## 3.4.
 
+My lower back is killing me, tried to do longer warm up, but still didn't help.
+
 1. Squats with belt
-   - working sets: 5 x 5 x 120kg
+   - Was aiming for 5 sets, did only 3, and the last wasn't even full
+   - working sets: 2 x 5 x 120kg + 3 x 120kg
 2. Bulgarian split squats
-   - working sets: 4 x 15 per leg x 20kg
+   - Even withoug weight it was enough, quads are burning
+   - working sets: 4 x 15 per leg
 3. Leg press
-   - working sets: 3 x 25 x 100kg
-4. Dumbbell stiff legged deadlifts
-   - working sets: 2 x 20 x 30kg in each hand
-5. One leg seated calf raises toes out
-   - working sets: 4 x 15 per leg + 8 with right x 25kg
+   - Mixed feelings, I was out of breath, but legs were +/- ok
+   - working sets: 2 x 25 x 100kg
+4. One leg seated calf raises toes out
+   - Starting to hold right one in peek contraction, and it burns
+   - working sets: 3 x 15 per leg + 8 with right x 25kg
    - rest in-between: stretch calves 8' per leg + 30"
-6. Seated calf raises toes out
-   - working sets: 4 x 20 x 40kg
+5. Seated calf raises toes out
+   - High burn, massive pump
+   - working sets: 3 x 20 x 40kg
    - rest in-between: stretch calves 8' per leg + 30"
-7. Stretching
+6. Stretching
    - standing quads stretch: 2 x 30" per leg
    - leg over leg glute stretch: 2 x 30" per leg
    - calf stretch against wall: 2 x 30" per calf
