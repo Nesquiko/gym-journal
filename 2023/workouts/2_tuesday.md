@@ -1,20 +1,23 @@
 ## 4.4.
 
 1. Bench press
+   - Feeling solid with this weight
    - working sets: 3 x 3 x 80kg
 2. Bench press
+   - This went really smoothly, when compared to last time I did it
    - working sets: 3 x 10 x 60kg
 3. Cable crossover
-   - working sets: 5 x 12 x 16kg
-4. Dumbbell bench press **FULL RANGE**
-   - working sets: 4 x 15 x 20kg
-5. Incline chest press
-   - working sets: 4 x 15 x ???
-6. Skullcrushers
-   - working sets: 4 x 15 x 10kg per side
-7. Face pulls
+   - This stretched everything, also every set was to the failure
+   - working sets: 4 x 6-10 x 16kg
+4. Incline chest press
+   - the 50kg I failed at around 12-13
+   - working sets: 4 x 15 x (30kg, 40kg, 50kg)
+5. Skullcrushers
+   - This wasn't as easy as I thought it would be
+   - working sets: 2 x UF x 10kg per side
+6. Face pulls
    - working sets: 4 x 15 x 15kg
-8. Stretching
+7. Stretching
    - chest stretch against wall: 2 x 30" per arm
    - elbow over head stretch: 2 x 30" per arm
 
