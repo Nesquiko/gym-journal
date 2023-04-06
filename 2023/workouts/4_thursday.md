@@ -1,20 +1,30 @@
 ## 6.4.
 
-1. Overhead press
-   - working set: 3 x 8 x 40kg
-2. Seated dumbbell overhead press
-   - working set: (15, 12, 10, 8, 8, 8) x ???kg
-3. Landmin press
-   - working set: 4 x 10-12 per arm x ???
-4. Machine lateral raise, one arm stopped, other reps
-   - working set: 4 x 15 per arm x 10kg
-5. Dumbbell lateral raise with hold
-   - working set: 4 x 10 x 7.5kg
-6. Face pulls
-   - working sets: 4 x 15 x 15kg
+Spring break is here, so went with a friend and did back and biceps.
+
+1. Pullups + Chinups
+   - managed to do around 10 pullups on average, but max 3 chinups after
+   - working set: 4 x (UF + UF)
+2. One arm dumbbell rows
+   - The 40 moved relatively well, I think it is time to up the weight
+   - working set: 3 x 8 per hand x 35kg, 1 x 10 per hand x 40kg
+3. Super set
+   - Used two single handles, and I like it, I can go far behind with each hand
+   - exercises: lat pulldowns with close grip, pedley rows
+   - working sets: 4 x (~12 x 50kg, ~15 x 40kg)
+4. Ez biceps overhand curls
+   - working set: 3 x UF x 5kg per side
+5. Hammer curls
+   - working set: 3 x 30" sec hold + 10 reps x 8kg in each hand
+6. Abs + cardio
+   - The air bike was iteresting, but I think I could go harder on it. Also used the
+     elbow holders (don't know how they are called) when doing the leg raises and
+     I liked it, because my forearms weren't problem
+   - working sets: 3 x (15 x hangin leg raises, 10" low 10" high effort on air bike)
 7. Stretching
-   - shoulder band mobility exercise: 3 x 8
-   - stick stretch of shoulder: 3 x 30" hold per arm
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
 
 ## 30.3.
 
