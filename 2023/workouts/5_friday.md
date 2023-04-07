@@ -1,15 +1,33 @@
 ## 7.4.
 
-1. Deadlift with belt
-   - working sets: 5 x 5 x 130kg
-2. Dumbberll stiff legged deadlift
-   - working sets: 4 x 10 x 30kg in each hand
-3. Hyperextensions
-   - working sets: 4 x 12
-   - rest in-between: 30"
-4. Stretching
-   - lying bend leg on other side stretch: 3 x 15" per side
-   - hamstring: 2 x 30" per side
+1. Squats with belt
+   - I had a friend spot me, so I didn't have fear in my head when squatting, did it easily,
+     also I think that we went on 11 was a big factor
+   - working sets: 4 x 5 x 120kg
+2. Back lunges
+   - The lunge walk was easy, add weight
+   - working sets: 4 x (8 x 30kg in each hand + lunge walk ~20)
+3. Super set
+   - The bulgarian split squats weren't as tough as other weeks, maybe low volume?
+   - exercises: leg extensions, bulgarian split squats
+   - working sets: 3 x (40, 50, 60kg x 12 + 0, 7.5, 12.5kg x 8)
+4. Hack Squats
+   - They added hack squat machine, and I love it, legs will burn
+   - working sets: only testing 2 x 10 x 40kg
+5. One leg seated calf raises toes out
+   - couln't get full range, the weight was too much
+   - working sets: 3 x 12 per leg + 8 with right x 25kg
+6. Standing calf raises
+   - Didn't stretch in in-between, I think that made me fail sooner, but on the
+     other hand, did them slowly with hold at the top
+   - working sets: 3 x UF x 50kg
+7. Abs
+   - working sets: 3 x (20 x crunch, 20 x russian twist with 8kg, 10 x ab wheel)
+   - rest in-between: 1'
+8. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 1 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
 
 ## 31.3.
 
