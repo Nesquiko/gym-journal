@@ -1,3 +1,16 @@
+## 10.4.
+
+This week I have a race, so workout was light
+
+1. Front squats
+   - working sets: 3 x 1 x 100kg
+2. Hack squats
+   - working sets: 4 x 8 x 40kg
+3. Barbell Lunges
+   - working sets: 3 x 5 per leg x 40kg
+4. Dumbbell stiff legged deadlift
+   - working sets: 3 x 10 x 25kg
+
 ## 3.4.
 
 My lower back is killing me, tried to do longer warm up, but still didn't help.
