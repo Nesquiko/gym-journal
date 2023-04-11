@@ -1,3 +1,28 @@
+## 11.4.
+
+1. Bend over rows
+   - 60kg moved smoothly, the 70kg was with more body english
+   - working sets: 3 x 8 x 60kg + 1 x 8 x 70kg
+2. One arm dumbbell rows
+   - I am getting stronger on this one!
+   - working sets: 3 x 12 per hand x 35kg
+3. Pullups with slow down
+   - Didn't feel lats as much as muscle fatigue in them, somehow I must increase
+     mind muscle connection with lats
+   - working sets: 2 x UF, 2 x UF x 10kg vest
+4. Close grip lat pulldowns
+   - Used handles for each arm and I love it, can get more contraction in lats, romboids
+   - working sets: 9-12 x (40kg, 45kg, 50kg, 55kg)
+5. Spider curls
+   - these are killers, big pump
+   - working sets: 3 x UF x 10kg in each hand
+6. Abs
+   - Core is strong, didn't feel anything
+   - working sets: 2 x (10 x ab wheel, 10 x hanging leg raises)
+7. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - bicep stretch: 3 x 15" per arm
+
 ## 4.4.
 
 1. Bench press
