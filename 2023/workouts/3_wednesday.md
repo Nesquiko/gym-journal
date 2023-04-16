@@ -1,3 +1,7 @@
+## 12.4.
+
+Didn't go, race in the weekend.
+
 ## 5.4.
 
 Had to reorganize this week, because I'm going with a friend tomorrow
