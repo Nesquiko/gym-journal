@@ -1,3 +1,7 @@
+## 22.4. - 23.4.
+
+Another race day, so roll a lot.
+
 ## 15.4. - 16.4.
 
 Had a race, so rolled a lot.

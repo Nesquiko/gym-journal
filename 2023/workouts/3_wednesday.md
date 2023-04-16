@@ -1,3 +1,18 @@
+## 19.4.
+
+1. Pullups
+   - working sets: 3 x 4 x 16kg
+2. Bend over rows
+   - working sets: 3 x 8 x 60kg
+3. One arm dumbbell row
+   - working sets: 3 x 8 x 35kg
+4. Ez bar biceps curl
+   - working sets: 4 x 12 x 10kg per side
+5. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 12.4.
 
 Didn't go, race in the weekend.

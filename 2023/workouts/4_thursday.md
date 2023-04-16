@@ -1,3 +1,24 @@
+## 20.4.
+
+1. Overhead press
+   - working set: 3 x 3 x 50kg
+2. Overhead press
+   - ignition set: 12 x 35kg
+   - working set: 20 (pause for 15" on failure) x 35kg
+3. Dumbbell lateral raise
+   - working sets: 4 x 15 x 10kg
+4. Dumbbell rear delt row
+   - working sets: 4 x 15 x 6kg
+5. Cable front raise
+   - working sets: 4 x 16 x 8kg
+6. Alternating Dumbbell lateral raise
+   - working sets: 4 x 2 (5 with left - right paused + 5 with right - left paused)
+7. Face pulls
+   - working sets: 4 x 15 x 15kg
+8. Stretching
+   - shoulder band mobility exercise: 3 x 8
+   - stick stretch of shoulder: 3 x 30" hold per arm
+
 ## 13.4.
 
 Didn't go, race in the weekend.

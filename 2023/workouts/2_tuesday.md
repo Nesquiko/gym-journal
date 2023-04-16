@@ -1,3 +1,23 @@
+## 18.4.
+
+1. Bench press
+   - working sets: 3 x 4 x 80kg
+2. Bench press
+   - working sets: 3 x 12 x 60kg
+3. Incline dumbbell bench press **FULL RANGE**
+   - working sets: 4 x 10 x 27.5kg
+4. Cable crossover
+   - working sets: 4 x 16 x 10kg
+5. Dips, slow and controlled
+   - working sets: 4 x 10
+6. Tricep extensions
+   - working sets: 4 x 15 x 20kg
+7. Face pulls
+   - working sets: 4 x 15 x 15kg
+8. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 11.4.
 
 1. Bend over rows

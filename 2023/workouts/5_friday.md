@@ -1,3 +1,15 @@
+## 21.4.
+
+1. Deadlift with belt
+   - working sets: 2 x 2 x 150kg
+2. Deadlift with belt
+   - working sets: 3 x 5 x 130kg
+3. Romanian dumbbell deadlift
+   - working sets: 4 x 12 x 30kg in each hand
+4. Stretching
+   - lying bend leg on other side stretch: 3 x 15" per side
+   - hamstring: 2 x 30" per side
+
 ## 14.4.
 
 Didn't go, race in the weekend.
@@ -162,7 +174,7 @@ Nothing, I have race tomorrow
 
 ## 27.1.
 
-1. Dumbberll deadlift
+1. Dumbbell deadlift
    - good for warm up
    - working sets: 10 x 15kg, 8 x 20kg, 6 x 30kg
 2. Deadlift with belt

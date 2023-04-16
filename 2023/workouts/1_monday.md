@@ -1,3 +1,26 @@
+## 17.4.
+
+1. Squats with belt
+   - hit 1 x 140kg
+2. Squats with belt
+   - working sets: 3 x 4 (+ with pause) x 120kg
+3. Squats
+   - working sets: 20 x 60kg
+4. Bulgarian split squats
+   - working sets: 4 x 10 per leg x 15kgs in each hand
+5. Hack squats
+   - working sets: 4 x 12 x 40kg
+6. One leg seated calf raises toes out
+   - working sets: 3 x 15 per leg + 8 with right x 25kg
+   - rest in-between: stretch calves 8' per leg + 30"
+7. Standing calf raises
+   - working sets: 3 x UF x 50kg
+   - rest in-between: stretch calves 8' per leg + 30"
+8. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 10.4.
 
 This week I have a race, so workout was light
