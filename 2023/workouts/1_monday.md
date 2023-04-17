@@ -1,25 +1,30 @@
 ## 17.4.
 
-1. Squats with belt
+Felt strong, confident, I think I will doing squats in the afternoon, because
+I don't have this much confidence in the morning, and also I am more warmed up.
+
+1. ## Squats with belt
+   - Hit it with great depth and good technique
    - hit 1 x 140kg
 2. Squats with belt
+   - 120kg moved really great also the pauses were there, minimal 2 seconds
    - working sets: 3 x 4 (+ with pause) x 120kg
 3. Squats
+   - Damn, I remember when this was impossible
    - working sets: 20 x 60kg
 4. Bulgarian split squats
-   - working sets: 4 x 10 per leg x 15kgs in each hand
-5. Hack squats
-   - working sets: 4 x 12 x 40kg
-6. One leg seated calf raises toes out
-   - working sets: 3 x 15 per leg + 8 with right x 25kg
-   - rest in-between: stretch calves 8' per leg + 30"
-7. Standing calf raises
-   - working sets: 3 x UF x 50kg
-   - rest in-between: stretch calves 8' per leg + 30"
-8. Stretching
+   - I am dead, not much of a burn, but somehow I'm dying from this
+   - working sets: 3 x 10 per leg x 15kgs in each hand
+5. Seated calf raises
+   - Concentrated on every rep, and enjoyed the burn, calves were exploding
+   - working sets: 4 x UF x 40kg + 1 x UF x 25kg
+6. Abs
+   - working sets: 3 x (20 x crunch, 20 x russian twist with 8kg, 10 x ab wheel)
+7. Stretching
    - standing quads stretch: 2 x 30" per leg
    - leg over leg glute stretch: 2 x 30" per leg
    - calf stretch against wall: 2 x 30" per calf
+   - lying abs stretch: 4 x 15"
 
 ## 10.4.
 
