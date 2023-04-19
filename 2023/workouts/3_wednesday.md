@@ -1,17 +1,20 @@
 ## 19.4.
 
-1. Pullups
-   - working sets: 3 x 4 x 16kg
-2. Bend over rows
-   - working sets: 3 x 8 x 60kg
-3. One arm dumbbell row
-   - working sets: 3 x 8 x 35kg
+1. Bend over rows
+   - The 9th and 10th rep where pretty tough
+   - working sets: 4 x 10 x 60kg
+2. One arm dumbbell row
+   - getting stronger!!
+   - working sets: 2 x 8 per hand x 40kg
+3. One arm seated row
+   - Wasn't challenging, got good stretch in
+   - working sets: 8 per hand x (20kg, 25kg, 30kg, 35kg, 35kg)
 4. Ez bar biceps curl
-   - working sets: 4 x 12 x 10kg per side
+   - My arms are pumped, as hard as stone
+   - working sets: 3 x 12 x 10kg per side
 5. Stretching
-   - on knees lats stretch: 2 x 15" per direction
-   - straight arms behind head against wall stretch: 3 x 30"
-   - bicep stretch: 3 x 15" per arm
+   - straight arms behind head against wall stretch: 2 x 30"
+   - bicep stretch: 1 x 15" per arm
 
 ## 12.4.
 
