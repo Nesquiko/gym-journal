@@ -1,23 +1,26 @@
 ## 20.4.
 
 1. Overhead press
-   - working set: 3 x 3 x 50kg
-2. Overhead press
-   - ignition set: 12 x 35kg
-   - working set: 20 (pause for 15" on failure) x 35kg
-3. Dumbbell lateral raise
+   - This was surprisingly easy, added 1 rep to each set
+   - working set: 3 x 4 x 50kg
+2. Dumbbell lateral raise
+   - My delts ant traps are burning
    - working sets: 4 x 15 x 10kg
-4. Dumbbell rear delt row
-   - working sets: 4 x 15 x 6kg
-5. Cable front raise
-   - working sets: 4 x 16 x 8kg
-6. Alternating Dumbbell lateral raise
-   - working sets: 4 x 2 (5 with left - right paused + 5 with right - left paused)
-7. Face pulls
-   - working sets: 4 x 15 x 15kg
-8. Stretching
+3. Dumbbell rear delt row
+   - Felt whole rear delts and rotators
+   - working sets: 4 x 15 x 7kg
+4. Plate front raise
+   - Range of motion wasn't the greatest, but lit up front delts
+   - working sets: 4 x 12 x 15kg
+5. Alternating Dumbbell lateral raise
+   - the hold is intense, middle delts were shaking
+   - working sets: 4 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
+6. Abs
+   - working sets: 3 x (20 x crunch, 15 x ab wheel, 15 x leg raises)
+7. Stretching
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
+   - lying abs stretch: 4 x 15"
 
 ## 13.4.
 
