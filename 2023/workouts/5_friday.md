@@ -1,14 +1,15 @@
 ## 21.4.
 
 1. Deadlift with belt
-   - working sets: 2 x 2 x 150kg
+   - couldn't do two reps...
+   - working sets: 2 x 1 x 150kg
 2. Deadlift with belt
-   - working sets: 3 x 5 x 130kg
-3. Romanian dumbbell deadlift
-   - working sets: 4 x 12 x 30kg in each hand
-4. Stretching
-   - lying bend leg on other side stretch: 3 x 15" per side
-   - hamstring: 2 x 30" per side
+   - tuned it down a bit, but this moved easily
+   - working sets: 2 x 4 x 130kg
+3. Leg curls
+   - I liked the pump in hamstrings, little discomfort in lower back
+   - working sets: 4 x 15 x (15kg, 25kg, 35kg, 45kg)
+4. Roller
 
 ## 14.4.
 
