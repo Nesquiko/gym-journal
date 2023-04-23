@@ -1,3 +1,24 @@
+## 25.4.
+
+1. Bench press
+   - working sets: 2 x 5 x 80kg
+2. Bench press
+   - working sets: 3 x 12 x 60kg
+3. Incline dumbbell bench press
+   - working sets: 5 x 12 x 25kg
+4. Dips, slow and controlled
+   - working sets: 4 x 10
+5. Cable crossover
+   - working sets: 4 x 16 x 10kg
+6. Triceps overhead extensions
+   - working sets: 4 x 20 x 15kg
+7. Face pulls
+   - working sets: 4 x 15 x 15kg
+8. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - lying abs stretch: 4 x 15"
+
 ## 18.4.
 
 1. Bench press
@@ -15,7 +36,7 @@
 5. Cable crossover
    - The burn and stretch were intense
    - working sets: 4 x UF x 10kg
-6. Tricep extensions
+6. Tricep underhand extensions
    - Dont know what to think, got the blood flowing
    - working sets: 4 x 15 x (12.5kg, 15kg, 17.5kg, 20kg)
 7. Face pulls
