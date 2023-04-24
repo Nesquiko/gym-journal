@@ -1,18 +1,26 @@
 ## 24.4.
 
 1. Squats with belt
-   - working sets: 3 x 4 x 130kg
+   - Had longer warm up with roller, and I think it helped, didn't feel my lower back as previously
+   - Also I am happy that 130kg moved well, no high reps
+   - working sets: 2 x 4 x 130kg
 2. Bulgarian split squats
-   - working sets: 4 x 12 per leg x 15kg in each hand
+   - This kicked my ass, only did 2 sets, but it was enough
+   - working sets: 2 x 12 per leg x 16kg in each hand
 3. Leg extenstions
-   - working sets: 4 x 15-20 slow x 65kg??
+   - Legs were shaking, I must do these more
+   - working sets: 4 x 15-20 slow x 50kg
 4. Hack squats
-   - working sets: 4 x 12 x 40kg
+   - I must do these earlier in workout and with more weight, at the end I don't have enough
+     energy to go heavy
+   - working sets: 3 x 12 x 20kg
 5. One leg seated calf raises toes out
-   - working sets: 4 x 15 per leg + 8 with right x 25kg
+   - I don't like this, maybe lower the weight, and start with both leg exercise
+   - working sets: 3 x 12 per leg x 25kg
    - rest in-between: stretch calves 8' per leg + 30"
-6. Standing calf raises
-   - working sets: 4 x UF x 60kg
+6. Seated calf raises
+   - High burn, big pump
+   - working sets: 3 x UF x 40kg
    - rest in-between: stretch calves 8' per leg + 30"
 7. Stretching
    - standing quads stretch: 2 x 30" per leg
