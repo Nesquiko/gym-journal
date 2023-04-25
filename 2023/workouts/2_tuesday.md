@@ -1,20 +1,29 @@
 ## 25.4.
 
 1. Bench press
+   - Next week going for 90kg!
    - working sets: 2 x 5 x 80kg
 2. Bench press
+   - Had to pause only on last set
    - working sets: 3 x 12 x 60kg
-3. Incline dumbbell bench press
-   - working sets: 5 x 12 x 25kg
-4. Dips, slow and controlled
+3. Dips, slow and controlled
+   - right arm is more dominant, must learn how to activate left
    - working sets: 4 x 10
-5. Cable crossover
-   - working sets: 4 x 16 x 10kg
-6. Triceps overhead extensions
-   - working sets: 4 x 20 x 15kg
-7. Face pulls
-   - working sets: 4 x 15 x 15kg
-8. Stretching
+4. Incline bench press
+   - I think I could hit 60kg for 4 reps on this
+   - working sets: 8-10 x (20kg, 30kg, 40kg, 50kg)
+5. Cable upper flys
+   - don't like this, felt more my front delts
+   - working sets: 3 x 10 x 8kg
+6. Incline dumbbell bench press
+   - got the blood flowing and a good stretch
+   - working sets: 3 x UF x 20kg
+7. Triceps overhead extensions
+   - first 12 resp were good, and then last 3 reps were hell
+   - working sets: 4 x 15 x 10kg
+8. Abs
+   - working sets: 3 x (20 x crunch, 20 x russian twist with 10kg, 10 x ab wheel)
+9. Stretching
    - chest stretch against wall: 2 x 30" per arm
    - elbow over head stretch: 2 x 30" per arm
    - lying abs stretch: 4 x 15"
