@@ -1,10 +1,10 @@
 # Gym goals for 2023
 
-## April
+## April (1/3)
 
 - 8 x 130kg on squat
 - 8 x 130kg on deadlift
-- 5 x 80kg on bench press
+- 5 x 80kg on bench press ✔️
 
 ## To the end of march
 
