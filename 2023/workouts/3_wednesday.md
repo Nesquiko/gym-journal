@@ -1,17 +1,18 @@
 ## 26.4.
 
 1. Bend over rows
+   - Tried one set with straps, with 60kg I didn't feel difference
    - working sets: 4 x 10 x 60kg
 2. One arm dumbbell row
+   - Found good stance, my lower back wasn't in pain, also I should add reps
    - working sets: 3 x 8 per hand x 40kg
 3. Lat pulldowns
-   - working sets: 4 x 8-12 x 65kg
-4. Ez bar biceps curl
-   - working sets: 4 x 12 x 10kg per side
-5. Stretching
+   - I remember that this was heavier, but more than 8 reps should be with straps
+   - working sets: 2 x 8 x 65kg
+4. Stretching
    - on knees lats stretch: 2 x 15" per direction
    - straight arms behind head against wall stretch: 3 x 30"
-   - bicep stretch: 3 x 15" per arm
+   - elbow over head stretch: 2 x 30" per arm
 
 ## 19.4.
 
