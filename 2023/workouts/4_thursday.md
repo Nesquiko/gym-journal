@@ -1,16 +1,26 @@
 ## 27.4.
 
 1. Overhead press
+   - Didn't get 5 clean reps, used leg drive
    - working set: 3 x 5 x 50kg
 2. Dumbbell lateral raise
+   - My delts and traps are burning
    - working sets: 4 x 15 x 10kg
 3. Dumbbell rear delt row
-   - working sets: 4 x 15 x 7kg
+   - Had a strange feeling in my right shoulder, but it went away
+   - working sets: 4 x 15 x 7.5kg
 4. Cable front raise
-   - working sets: 4 x 12 x 10kg
+   - hit failure on these
+   - working sets: 4 x 12 x 8kg
 5. Alternating Dumbbell lateral raise
+   - Middle delts are pumped and in fire
    - working sets: 4 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
-6. Stretching
+6. Face pulls with stop
+   - concentrated on each rep, and when the burn was too high, reped the rest
+   - working sets: 3 x 15 x 12kg
+7. Abs
+   - working sets: 3 x (20 x crunch, 20 x russian twist with 10kg, 10 x ab wheel)
+8. Stretching
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
 
