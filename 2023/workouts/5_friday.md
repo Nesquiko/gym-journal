@@ -1,10 +1,14 @@
 ## 28.4.
 
 1. Deadlift with belt
+   - Hamstrings were starting to give up, first 4 were beautiful, then my form deteriorated
    - working sets: 8 x 130kg
-2. Stretching
+2. Abs
+   - working sets: 3 x (20 x crunch, 20 x russian twist with 8kg, 10 x ab wheel)
+3. Stretching
    - lying bend leg on other side stretch: 3 x 15" per side
    - hamstring: 2 x 30" per side
+   - lying abs stretch: 4 x 15"
 
 ## 21.4.
 
