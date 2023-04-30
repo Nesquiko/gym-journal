@@ -1,3 +1,21 @@
+## 4.5.
+
+1. Overhead press
+   - working set: 3 x 5 x 50kg
+2. Dumbbell lateral raise
+   - working sets: 4 x 15 x 10kg
+3. Dumbbell rear delt row
+   - working sets: 4 x 15 x 7.5kg
+4. Cable front raise
+   - working sets: 4 x 12 x 8kg
+5. Alternating Dumbbell lateral raise
+   - working sets: 4 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
+6. Face pulls with stop
+   - working sets: 4 x 15 x 12kg
+7. Stretching
+   - shoulder band mobility exercise: 3 x 8
+   - stick stretch of shoulder: 3 x 30" hold per arm
+
 ## 27.4.
 
 1. Overhead press

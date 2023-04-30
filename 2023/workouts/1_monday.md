@@ -1,3 +1,24 @@
+## 1.5.
+
+1. Squats with belt
+   - working sets: 3 x 2 x 140kg
+2. Squats with belt
+   - working sets: 3 x 5 x 120kg
+3. Hack squats
+   - working sets: 4 x 15 x 40kg
+4. Leg extenstions
+   - working sets: 4 x 12-15 slow, with hold x 50kg
+5. Standing calf raises
+   - working sets: 4 x 15-20 slow with hold x 50kg
+6. Seated calf raises
+   - working sets: 4 x 20 x 40kg
+7. Standing right leg calf raises
+   - working sets: 4 x 15
+8. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 24.4.
 
 1. Squats with belt
