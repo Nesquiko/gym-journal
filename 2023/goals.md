@@ -1,9 +1,18 @@
 # Gym goals for 2023
 
-## April (1/3)
+## May (2/3)
 
-- 8 x 130kg on squat
-- 8 x 130kg on deadlift
+- 1 x 150kg on squat
+- 1 x 160kg on deadlift
+- 1 x 90kg on bench press
+
+## April (2/3)
+
+Squats are only problem... When I squat I don't have confidence. But I did
+2 x 4 x 130kg, soooo I think I might be able to barely do the 8 x 130kg
+
+- 8 x 130kg on squat ❌
+- 8 x 130kg on deadlift ✔️
 - 5 x 80kg on bench press ✔️
 
 ## To the end of march
