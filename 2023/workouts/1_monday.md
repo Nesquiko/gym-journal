@@ -1,18 +1,25 @@
 ## 1.5.
 
 1. Squats with belt
+   - I can do this! Yeah, all reps weren't perfect, but did it!
    - working sets: 3 x 2 x 140kg
 2. Squats with belt
-   - working sets: 3 x 5 x 120kg
+   - I feel like 120kg is now a "play" weight
+   - working sets: 2 x 5 x 120kg
 3. Hack squats
-   - working sets: 4 x 15 x 40kg
+   - didn't feel burn in quads, but I was out of breath and if I did more reps, maybe I would hit failure
+   - working sets: 3 x 10 x 40kg
 4. Leg extenstions
+   - Quads were burning like hell
    - working sets: 4 x 12-15 slow, with hold x 50kg
 5. Standing calf raises
+   - On this I feel more outer calves
    - working sets: 4 x 15-20 slow with hold x 50kg
 6. Seated calf raises
-   - working sets: 4 x 20 x 40kg
+   - Calves were already pumped, here I just enjoyed the burn
+   - working sets: 4 x UF x 40kg
 7. Standing right leg calf raises
+   - Right one is pumped, I think this will help balance the calves
    - working sets: 4 x 15
 8. Stretching
    - standing quads stretch: 2 x 30" per leg
