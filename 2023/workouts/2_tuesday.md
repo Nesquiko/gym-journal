@@ -1,20 +1,24 @@
 ## 2.5.
 
 1. Bench press
+   - Hit 90kg, felt solid, braced my whole body and it went smoothly, no grinding
    - work up to 1 x 90kg
 2. Bench press
+   - Expected this to be harder, but after the 90kg I felt unstoppable
    - working sets: 3 x 8 x 70kg
 3. Incline dumbbell bench press
-   - working sets: 4 x 12 x 25kg
+   - 12 reps were on the point, started hitting form failure at the 12th
+   - working sets: 3 x 12 x 25kg
 4. Dips
+   - Triceps are pumped, shoulders are picky in which position to hurt...
    - working sets: 4 x 12
-5. Cable crossover
-   - working sets: 4 x 16 slow and with hold x 8kg
-6. Overhead triceps extensions
-   - working sets: 4 x 15 x 12.5kg
-7. Face pulls
+5. Overhead triceps extensions
+   - Didn't destroy my triceps on previous exercises, so this was just a good blood pumper
    - working sets: 4 x 15 x 15kg
-8. Stretching
+6. Face pulls
+   - Did slower and more controlled reps
+   - working sets: 4 x 15 x 12.5kg
+7. Stretching
    - chest stretch against wall: 2 x 30" per arm
    - elbow over head stretch: 2 x 30" per arm
 
