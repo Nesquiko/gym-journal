@@ -1,8 +1,10 @@
 ## 5.5.
 
 1. Deadlift with belt
+   - Can lift this without any problems
    - working sets: 3 x 3 x 140kg
 2. Hyperextensions
+   - Engaged with glutes and my whole posterior chain was burning
    - working sets: 4 x 12
 3. Stretching
    - lying bend leg on other side stretch: 3 x 15" per side
