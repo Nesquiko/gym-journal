@@ -1,3 +1,23 @@
+## 8.5.
+
+This week will be lighter, because I have additional swims. So today
+I had lighter workout, just to get the blood flowing.
+
+1. Box Squats
+   - tried to be explosive on the way up, but since I had 100kg on me, it wasn't
+     that convincing, but effort was there
+   - working sets: 3 x 5 x 100kg
+2. Hack Squats
+   - everything else was taken, so did this to get good stretch
+   - working sets: 3 x 6 x 40kg
+3. Seated calf raises
+   - got a medium pump, choose wrong shoes for this, do this only with the lifting shoes
+   - working sets: 4 x 12-15 x 35kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 1.5.
 
 1. Squats with belt
