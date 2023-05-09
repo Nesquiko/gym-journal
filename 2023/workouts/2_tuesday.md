@@ -1,24 +1,24 @@
 ## 9.5.
 
 1. Bench press
+   - First set was ok, but came little of the bench, the second was worse
    - working sets: 2 x 2 x 90kg
 2. Bench pres
-   - working sets: 3 x 10 x 70kg
+   - First set I did 10, but then I failed on next
+   - working sets: 3 x (10, 8, 8) x 70kg
 3. Incline dumbbell bench press
-   - working sets: 4 x 12 x 25kg
+   - Well, this was tough, on average did 8 reps
+   - working sets: 4 x UF x 25kg
 4. Dips
+   - First rep is always hard, must get into a good position, but then it is smooth
    - working sets: 4 x 12
 5. Peck deck
-   - working sets: 4 x 20 x ???kg
-6. Overhead triceps extensions
-   - Didn't destroy my triceps on previous exercises, so this was just a good blood pumper
-   - working sets: 4 x 15 x 15kg
-7. Face pulls
-   - Did slower and more controlled reps
-   - working sets: 4 x 15 x 12.5kg
-8. Stretching
+   - I like this, but don't if I like it more than the cable crossover
+   - working sets: 3 x 20 x (20, 30, 40kg)
+6. Face pulls
+   - working sets: 4 x 15 x 12kg
+7. Stretching
    - chest stretch against wall: 2 x 30" per arm
-   - elbow over head stretch: 2 x 30" per arm
 
 ## 2.5.
 
