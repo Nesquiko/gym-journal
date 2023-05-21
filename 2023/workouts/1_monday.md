@@ -1,3 +1,21 @@
+## 22.5.
+
+1. Squats with belt
+   - work up to 1 x 140kg
+   - working sets: 2 x 5 x 130kg
+2. Back lunges
+   - working sets: 4 x 8 x 32.5kg
+3. Leg extenstions
+   - working sets: 4 x 15 per leg x 55kg
+4. Seated calf raises
+   - working sets: 4 x 15 x 35kg
+5. Standing right leg calf raises
+   - working sets: 4 x 15
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 15.5.
 
 Nothing, MSR on the weekend.

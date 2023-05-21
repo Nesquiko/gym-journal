@@ -1,16 +1,21 @@
+## 26.5.
+
+1. Deadlift with belt
+   - work up to: 1 x 150kg
+   - working sets: 3 x 3 x 140kg
+2. Hyperextensions
+   - working sets: 4 x 12
+3. Stretching
+   - lying bend leg on other side stretch: 3 x 15" per side
+   - hamstring: 2 x 30" per side
+
 ## 19.5.
 
 Nothing, MSR on the weekend.
 
 ## 12.5.
 
-1. Deadlift with belt
-   - working sets: 2 x 2 x 150kg
-2. Hyperextensions
-   - working sets: 4 x 12
-3. Stretching
-   - lying bend leg on other side stretch: 3 x 15" per side
-   - hamstring: 2 x 30" per side
+Dead from the week, also I have exam in school.
 
 ## 5.5.
 

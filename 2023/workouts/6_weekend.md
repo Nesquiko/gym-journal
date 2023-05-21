@@ -1,3 +1,24 @@
+## 27.5. - 28.5.
+
+1. Head side stretch
+   - per side 3 x 15"
+2. Head down to side stretch
+   - per side 3 x 15"
+3. Chest stretch
+   - 2 x 30" per side
+4. Elbow over head tricep and lat stretch
+   - 2 x 30" per side
+5. On knees lats stretch (to the front, left, right)
+   - 2 x 15" per direction
+6. Lying abs stretch
+   - 4 x 15"
+7. Lying quad stretch
+   - 2 x 30" per leg
+8. Lying on back glute stretch
+   - 2 x 30" per side
+9. Hamstring stretch against band
+   - per side 2 x 30" stretch
+
 ## 20.5. - 21.5.
 
 Nothing, MSR on the weekend.

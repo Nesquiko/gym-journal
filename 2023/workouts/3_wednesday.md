@@ -1,3 +1,22 @@
+## 24.5.
+
+1. Bend over rows
+   - working sets: 3 x 6 x 70kg
+2. One arm dumbbell row
+   - working sets: 3 x 8 per hand x 40kg
+3. Lat pulldowns
+   - working sets: 3 x 8 x 65kg
+4. Straight arm pushdowns
+   - working sets: 4 x 15 x 30kg
+5. Spider curls
+   - working sets: 4 x 12-15 x 10kg
+6. Ez bar overhand curls
+   - working sets: 4 x 12-15 x 10kg per side
+7. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 17.5.
 
 Nothing, MSR on the weekend.

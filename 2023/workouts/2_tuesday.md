@@ -1,3 +1,21 @@
+## 23.5.
+
+1. Bench press
+   - working sets: 2 x 2 x 90kg
+2. Bench pres
+   - working sets: 3 x 8 x 70kg
+3. Incline dumbbell bench press
+   - working sets: 4 x 10 x 25kg
+4. Dips
+   - working sets: 4 x 12
+5. Cable crossover
+   - working sets: 4 x 16 x 14kg
+6. Face pulls
+   - working sets: 4 x 15 x 12kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 16.5.
 
 Nothing, MSR on the weekend.
