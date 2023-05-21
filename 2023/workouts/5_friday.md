@@ -1,3 +1,7 @@
+## 19.5.
+
+Nothing, MSR on the weekend.
+
 ## 12.5.
 
 1. Deadlift with belt

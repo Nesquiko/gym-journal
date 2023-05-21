@@ -1,3 +1,7 @@
+## 20.5. - 21.5.
+
+Nothing, MSR on the weekend.
+
 ## 13.5. - 14.5.
 
 1. Head side stretch

@@ -1,3 +1,7 @@
+## 17.5.
+
+Nothing, MSR on the weekend.
+
 ## 10.5.
 
 Nothing today, I have 3 swims.

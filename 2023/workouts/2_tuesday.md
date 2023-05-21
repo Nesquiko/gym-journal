@@ -1,3 +1,7 @@
+## 16.5.
+
+Nothing, MSR on the weekend.
+
 ## 9.5.
 
 1. Bench press

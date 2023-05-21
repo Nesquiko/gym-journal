@@ -1,3 +1,7 @@
+## 18.5.
+
+Nothing, MSR on the weekend.
+
 ## 11.5.
 
 I thought that my shoulders wouldn't be affected by the additional swims I had
