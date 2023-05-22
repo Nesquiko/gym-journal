@@ -1,16 +1,23 @@
 ## 22.5.
 
 1. Squats with belt
+   - The 140kg was solid! Tried to overfill lungs with air and it helped,
+     then did 3 x 3 x 120kg to see how the one week pause affected me, but
+     I am where I left of
    - work up to 1 x 140kg
-   - working sets: 2 x 5 x 130kg
+   - working sets: 3 x 3 x 120kg
 2. Back lunges
-   - working sets: 4 x 8 x 32.5kg
+   - Suprised how contolled I was with this weight, and even that my quads weren't dying
+   - working sets: 3 x 8 x 32.5kg
 3. Leg extenstions
-   - working sets: 4 x 15 per leg x 55kg
+   - I feel like my legs aren't making the same movement
+   - working sets: 4 x 15 per leg x 30kg
 4. Seated calf raises
+   - Little burn, no failure
    - working sets: 4 x 15 x 35kg
 5. Standing right leg calf raises
-   - working sets: 4 x 15
+   - right calf is pumped, keep with this
+   - working sets: 3 x 15
 6. Stretching
    - standing quads stretch: 2 x 30" per leg
    - leg over leg glute stretch: 2 x 30" per leg
