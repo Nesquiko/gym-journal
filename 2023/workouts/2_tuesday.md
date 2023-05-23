@@ -1,18 +1,21 @@
 ## 23.5.
 
 1. Bench press
+   - Strength is there, 1st reps in each set were flying
    - working sets: 2 x 2 x 90kg
 2. Bench pres
+   - Moderate burn
    - working sets: 3 x 8 x 70kg
 3. Incline dumbbell bench press
-   - working sets: 4 x 10 x 25kg
-4. Dips
-   - working sets: 4 x 12
-5. Cable crossover
-   - working sets: 4 x 16 x 14kg
-6. Face pulls
-   - working sets: 4 x 15 x 12kg
-7. Stretching
+   - On first 2 I did 10, but then 3rd and 4th were with failure at around 6
+   - working sets: 4 x 6-10 x 25kg
+4. Cable crossover
+   - Concentrated on pecs, and I think I'm getting better mind muscle connection
+   - working sets: 3 x 10-15 x (6, 8, 10)kg
+   - burn set: 15 x 6kg
+5. Face pulls
+   - working sets: 4 x 15 x 14kg
+6. Stretching
    - chest stretch against wall: 2 x 30" per arm
    - elbow over head stretch: 2 x 30" per arm
 
