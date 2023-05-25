@@ -1,17 +1,21 @@
 ## 25.5.
 
 1. Overhead press
+   - 1st set was without leg drive, so next week do 55kg
    - working set: 3 x 5 x 50kg
 2. Dumbbell lateral raise
    - working sets: 4 x 15 x 10kg
-3. Dumbbell rear delt row
-   - working sets: 4 x 15 x 7.5kg
-4. Cable front raise
-   - working sets: 4 x 12 x 8kg
+3. Lu raises
+   - Holy shit, my shoulders are on fire, whole shoulder complex was lit up
+   - working sets: 3 x 10 x 5kg in each hand
+4. Seated dumbbell overhead press
+   - didn't expect to be able to lift 20kgs, this late in workout
+   - working sets: 2 x 8 x 20kg
 5. Alternating Dumbbell lateral raise
-   - working sets: 4 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
+   - This burns so much...
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
 6. Face pulls with stop
-   - working sets: 3 x 15 x 12kg
+   - working sets: 3 x 12 x 12.5kg
 7. Stretching
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
