@@ -1,3 +1,23 @@
+## 31.5.
+
+1. Pull ups
+   - working sets: 3 x 5 x 12kg
+2. One arm dumbbell row
+   - working sets: 3 x 8 per hand x 40kg
+3. Lat pulldowns
+   - working sets: 3 x 12 x 65kg
+4. Straight arm pushdowns
+   - working sets: 3 x 15 x 25kg
+5. Hammer curls
+   - working sets: 4 x 12-15 x 10kg
+6. Ez bar overhand curls
+   - working sets: 4 x 12-15 x 10kg per side
+7. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 1 x 15" per arm
+
 ## 24.5.
 
 1. Pull ups
