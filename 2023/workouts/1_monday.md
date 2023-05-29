@@ -1,18 +1,20 @@
 ## 29.5.
 
 1. Squats with belt
+   - Ouu yeah, I am very happy with this one, hit proper depth on all of them
    - working sets: 3 x 2 x 140kg
 2. Squats with belt
+   - Also happy with this one, 120kg was flying
    - working sets: 2 x 5 x 120kg
-3. Back lunges
-   - working sets: 3 x 8 x 32.5kg
-4. Leg extenstions
-   - working sets: 4 x 15 per leg x 30kg
-5. Seated calf raises
+3. Leg extenstions
+   - I can add more weight, 50kg for 10 is doable
+   - working sets: 4 x 12 per leg x (30, 35, 40, 45)kg
+4. Seated calf raises
+   - Squezed living hell out of my calves, light burn but strong contractions
    - working sets: 4 x 15 x 40kg
-6. Standing right leg calf raises
+5. Standing right leg calf raises
    - working sets: 3 x 15
-7. Stretching
+6. Stretching
    - standing quads stretch: 2 x 30" per leg
    - leg over leg glute stretch: 2 x 30" per leg
    - calf stretch against wall: 2 x 30" per calf
