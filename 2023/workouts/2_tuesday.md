@@ -1,17 +1,28 @@
 ## 30.5.
 
+Today was more of a strength training than hypertrophy, I won't be sore tomorrow
+but I moved some (relatively) serious weight today.
+
 1. Bench press
+   - But didn't came off the bench, on any
    - working sets: 3 x 2 x 90kg
-2. Bench pres
+2. Bench press
+   - This was tough, but managed to complete it
    - working sets: 2 x 10 x 70kg
 3. Incline dumbbell bench press
-   - working sets: 4 x 6 x 30kg
-4. Dips
-   - working sets: 4 x 12
-5. Cable crossover
-   - working sets: 4 x 10 x 10kg
-6. Face pulls
-   - working sets: 4 x 15 x 14kg
+   - on the last one with 32.5kg I did only 5, but otherwise I was suprised how
+     well these weights moved for 6 reps
+   - working sets: 4 x 6 x (25, 27.5, 30, 32.5)kg
+4. Cable crossover
+   - my pecs are dead the last one destroyed them
+   - working sets: 3 x 10 x (10, 12, 14)kg
+5. Dips
+   - since today wasn't hypertrophic, I was flying on this one
+   - working sets: 3 x 12
+6. Lu raises
+   - swapped face pulls with this and man, I don't believe how my whole shoulder
+     complex is burning just from 2.5kgs
+   - working sets: 3 x 15 x 2.5kg in each hand
 7. Stretching
    - chest stretch against wall: 2 x 30" per arm
    - elbow over head stretch: 2 x 30" per arm
