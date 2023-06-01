@@ -1,17 +1,22 @@
 ## 1.6.
 
 1. Overhead press
-   - working set: 3 x 3 x 55kg
+   - 1st reps were good, the second little rusty
+   - working set: 3 x 2 x 55kg
 2. Dumbbell lateral raise
+   - Starting to feel the pump side delts
    - working sets: 4 x 15 x 10kg
 3. Lu raises
-   - working sets: 4 x 10 x 5kg in each hand
+   - Started to fatigue, even though the burn was light
+   - working sets: 4 x 12 x 5kg in each hand
 4. Seated dumbbell overhead press
+   - This wasn't hard, 25kg for 8 next time
    - working sets: 4 x 10 x 20kg
 5. Alternating Dumbbell lateral raise
-   - working sets: 4 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
+   - The burn and fatigue are insane
+   - working sets: 4 x 2 x (5 with left - right paused + 5 with right - left paused) x 7kg
 6. Face pulls with stop
-   - working sets: 4 x 12 x 12.5kg
+   - working sets: 4 x 12 x 12kg
 7. Stretching
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
