@@ -1,9 +1,11 @@
 ## 2.6.
 
 1. Deadlift with belt
+   - Was pretty beaten from the week, didn't expect to pull this
    - working sets: 2 x 2 x 150kg
 2. Deadlift with belt
-   - working sets 3 x 5 x 130kg
+   - This was like cardio xD, 130kg wasn't as light as I expected after the 150kg
+   - working sets 2 x 5 x 130kg
 3. Stretching
    - lying bend leg on other side stretch: 3 x 15" per side
    - hamstring stretch: 2 x 30" per side
