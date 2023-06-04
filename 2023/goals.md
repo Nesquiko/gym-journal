@@ -1,10 +1,19 @@
 # Gym goals for 2023
 
-## May (2/3)
+## June (0/3)
 
 - 1 x 150kg on squat
 - 1 x 160kg on deadlift
-- 1 x 90kg on bench press
+- 1 x 100kg on bench press
+
+## May (1/3)
+
+The MSR that I had put the squat on pause, but I feel I'm close to it. The same
+goes for the deadlift
+
+- 1 x 150kg on squat ❌
+- 1 x 160kg on deadlift ❌
+- 1 x 90kg on bench press ✔️
 
 ## April (2/3)
 
