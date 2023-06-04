@@ -1,3 +1,21 @@
+## 8.6.
+
+1. Overhead press
+   - working set: 3 x 2 x 55kg
+2. Dumbbell lateral raise
+   - working sets: 4 x 12 x 12.5kg
+3. Lu raises
+   - working sets: 4 x 12 x 5kg in each hand
+4. Seated dumbbell overhead press
+   - working sets: 4 x 8 x 25kg
+5. Alternating Dumbbell lateral raise
+   - working sets: 4 x 2 x (5 with left - right paused + 5 with right - left paused) x 7kg
+6. Face pulls with stop
+   - working sets: 4 x 12 x 12kg
+7. Stretching
+   - shoulder band mobility exercise: 3 x 8
+   - stick stretch of shoulder: 3 x 30" hold per arm
+
 ## 1.6.
 
 1. Overhead press

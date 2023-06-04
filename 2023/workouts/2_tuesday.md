@@ -1,3 +1,21 @@
+## 6.6.
+
+1. Bench press
+   - working sets: 2 x 3 x 90kg
+2. Bench press
+   - working sets: 3 x 10 x 70kg
+3. Incline dumbbell bench press
+   - working sets: 4 x 8 x 30kg
+4. Dips
+   - working sets: 4 x 12
+5. Cable crossover with **squeze**
+   - working sets: 4 x 16 x 12kg
+6. Face pulls
+   - working sets: 4 x 12 x 15kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 30.5.
 
 Today was more of a strength training than hypertrophy, I won't be sore tomorrow
