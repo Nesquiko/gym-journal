@@ -1,15 +1,20 @@
 ## 6.6.
 
 1. Bench press
+   - Ass came u from bench, but just a little bit, since I put my feet back
    - working sets: 2 x 3 x 90kg
 2. Bench press
-   - working sets: 3 x 10 x 70kg
+   - This was tougher than last week, planned 3 sets, but 2 were enough
+   - working sets: 2 x 10 x 70kg
 3. Incline dumbbell bench press
-   - working sets: 4 x 8 x 30kg
+   - Also this was tougher, managed to do 5 reps with 30kg in each set
+   - working sets: 2 x 5 x 30kg
 4. Dips
-   - working sets: 4 x 12
+   - These were easy, I need to add weight
+   - working sets: 3 x 12
 5. Cable crossover with **squeze**
-   - working sets: 4 x 16 x 12kg
+   - Light burn, but pretty high muscle fatigue
+   - working sets: 3 x UF x 12kg
 6. Face pulls
    - working sets: 4 x 12 x 15kg
 7. Stretching
