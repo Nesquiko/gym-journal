@@ -1,17 +1,22 @@
 ## 8.6.
 
 1. Overhead press
+   - First set was rusty, but then it moved the same as last week
    - working set: 3 x 2 x 55kg
 2. Dumbbell lateral raise
+   - More muscle fatigue then with 10kg
    - working sets: 4 x 12 x 12.5kg
 3. Lu raises
+   - I'm still amazed, not much of a burn, but muscle fatigue
    - working sets: 4 x 12 x 5kg in each hand
-4. Seated dumbbell overhead press
-   - working sets: 4 x 8 x 25kg
+4. Cable front raises
+   - working sets: 3 x 12 x (15, 17.5, 20)kg
 5. Alternating Dumbbell lateral raise
+   - Left shoulder burns more
    - working sets: 4 x 2 x (5 with left - right paused + 5 with right - left paused) x 7kg
-6. Face pulls with stop
-   - working sets: 4 x 12 x 12kg
+6. Reverse peck deck flys
+   - felt rear delts more than on face pulls, although not much of a burn
+   - working sets: 4 x 12 x (20, 25, 35, 40)kg
 7. Stretching
    - shoulder band mobility exercise: 3 x 8
    - stick stretch of shoulder: 3 x 30" hold per arm
