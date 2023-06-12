@@ -1,3 +1,7 @@
+## 12.6.
+
+Nothing, still visiting grandparents
+
 ## 5.6.
 
 1. Squats with belt
