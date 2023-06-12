@@ -1,12 +1,6 @@
 ## 9.6.
 
-1. Deadlift with belt
-   - working sets: 3 x 2 x 150kg
-2. Deadlift with belt
-   - working sets 2 x 5 x 130kg
-3. Stretching
-   - lying bend leg on other side stretch: 3 x 15" per side
-   - hamstring stretch: 2 x 30" per side
+Didn't go, going to visit my grandparents for the prolonged weekend
 
 ## 2.6.
 
