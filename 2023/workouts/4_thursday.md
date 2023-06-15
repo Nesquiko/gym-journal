@@ -1,18 +1,12 @@
 ## 15.6.
 
 1. Bench press
-   - working sets: 2 x 3 x 90kg
+   - First 2 were good, the last I lifted my ass of the bench
+   - working sets: 3 x 90kg
 2. Bench press
-   - working sets: 2 x 10 x 70kg
-3. Incline dumbbell bench press
-   - working sets: 2 x 5 x 30kg
-4. Dips
-   - working sets: 3 x 8 x 16kg
-5. Cable crossover with **squeze**
-   - working sets: 3 x UF x 12kg
-6. Face pulls
-   - working sets: 4 x 12 x 15kg
-7. Stretching
+   - The strength wasn't there to go for 10 reps consecutively
+   - working sets: 2 x (8 + 2) x 70kg
+3. Stretching
    - chest stretch against wall: 2 x 30" per arm
    - elbow over head stretch: 2 x 30" per arm
 
