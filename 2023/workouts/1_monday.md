@@ -1,3 +1,7 @@
+## 19.6.
+
+No gym today, instead sprint work and explosive stuff
+
 ## 12.6.
 
 Nothing, still visiting grandparents

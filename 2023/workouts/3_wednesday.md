@@ -1,3 +1,13 @@
+## 21.6.
+
+1. Squats with belt
+   - working sets: 2 x 145kg
+2. Explosive box squats
+   - working sets: 3 x 4 x 100kg
+3. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+
 ## 14.6.
 
 1. Squats with belt

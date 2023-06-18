@@ -1,3 +1,13 @@
+## 23.6.
+
+1. Deadlift with belt
+   - working sets: 2 x 155kg
+2. Explosive deadlift
+   - working sets: 3 x 4 x 100kg
+3. Stretching
+   - lying bend leg on other side stretch: 3 x 15" per side
+   - hamstring stretch: 2 x 30" per side
+
 ## 16.6.
 
 1. Deadlift with belt

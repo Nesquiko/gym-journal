@@ -1,3 +1,15 @@
+## 20.6.
+
+1. Bench press
+   - working sets: 2 x 95kg
+2. Bench press
+   - working sets: 2 x 10 x 70kg
+3. Incline dumbbell bench press
+   - working sets: 3 x 5 x 30kg
+4. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 13.6.
 
 Nothing, still visiting grandparents

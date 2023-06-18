@@ -1,3 +1,7 @@
+## 22.6.
+
+No gym today, instead sprint work and explosive stuff
+
 ## 15.6.
 
 1. Bench press
