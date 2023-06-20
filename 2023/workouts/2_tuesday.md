@@ -1,11 +1,15 @@
 ## 20.6.
 
 1. Bench press
-   - working sets: 2 x 95kg
+   - 2 x 95 was planned, but the first warm up 90kg felt rusty, so stayed on it.
+     But after it I felt strong. Much happier with these 3s than the last week's
+   - working sets: 2 x 3 x 90kg
 2. Bench press
+   - Did with without any pause, yeah the form deteriorated, but did it in one go
    - working sets: 2 x 10 x 70kg
 3. Incline dumbbell bench press
-   - working sets: 3 x 5 x 30kg
+   - The last rep was a grinder I pushed with everything, went to failure and beyond
+   - working sets: 8 x 27.5kg
 4. Stretching
    - chest stretch against wall: 2 x 30" per arm
    - elbow over head stretch: 2 x 30" per arm
