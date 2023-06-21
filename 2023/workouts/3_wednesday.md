@@ -1,12 +1,12 @@
 ## 21.6.
 
 1. Squats with belt
+   - Legs felt heavy after swim, but strength was there
    - working sets: 2 x 145kg
 2. Explosive box squats
+   - choose high box for this, but otherwise good
    - working sets: 3 x 4 x 100kg
-3. Stretching
-   - standing quads stretch: 2 x 30" per leg
-   - leg over leg glute stretch: 2 x 30" per leg
+3. Roller
 
 ## 14.6.
 
