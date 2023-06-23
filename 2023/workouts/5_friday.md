@@ -1,8 +1,10 @@
 ## 23.6.
 
 1. Deadlift with belt
+   - Same as with the squats on wednesday, legs were destroyed, but pushed through it
    - working sets: 2 x 155kg
 2. Explosive deadlift
+   - Last week this was flying, this week not so much
    - working sets: 3 x 4 x 100kg
 3. Stretching
    - lying bend leg on other side stretch: 3 x 15" per side
