@@ -1,10 +1,17 @@
 # Gym goals for 2023
 
-## June (0/3)
+## July
 
-- 1 x 150kg on squat
-- 1 x 160kg on deadlift
-- 1 x 100kg on bench press
+Gonna back down from strength and focus on the swimming competition
+
+## June (2/3)
+
+Deadlift and squat were clean, happy with them. On the bench press I still need
+to train with the 90kg with more reps, the 100kg wasn't even close
+
+- 1 x 150kg on squat ✔️
+- 1 x 160kg on deadlift ✔️
+- 1 x 100kg on bench press ❌
 
 ## May (1/3)
 
