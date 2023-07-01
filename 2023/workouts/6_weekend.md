@@ -1,3 +1,7 @@
+## 1.7. - 2.7.
+
+Regeneration after training camp
+
 ## 24.6. - 25.6.
 
 1. Head side stretch

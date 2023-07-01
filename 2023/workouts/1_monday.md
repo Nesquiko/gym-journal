@@ -1,3 +1,7 @@
+## 26.6.
+
+Nothing, tomorrow I'm going on training camp
+
 ## 19.6.
 
 No gym today, instead sprint work and explosive stuff

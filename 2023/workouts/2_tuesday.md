@@ -1,3 +1,14 @@
+## 27.6.
+
+On training camp
+
+1. Squat with bealt
+   - Even though I was after long swim, I did it, depth was at least parallel
+   - 1 x 150kg
+2. Bench press
+   - Tried 100kg but failed
+   - 1 x 90kg
+
 ## 20.6.
 
 1. Bench press

@@ -1,3 +1,7 @@
+## 30.6.
+
+End of training camp
+
 ## 23.6.
 
 1. Deadlift with belt

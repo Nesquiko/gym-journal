@@ -1,3 +1,7 @@
+## 28.6.
+
+No gym today, still on training camp
+
 ## 21.6.
 
 1. Squats with belt

@@ -1,3 +1,11 @@
+## 29.6.
+
+Still on training camp
+
+1. Deadlift with belt
+   - When right hand is in overhand position, it doesn't have strong enough grip
+   - 2 x 1 x 160kg
+
 ## 22.6.
 
 No gym today, instead sprint work and explosive stuff
