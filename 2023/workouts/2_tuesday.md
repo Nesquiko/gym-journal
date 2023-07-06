@@ -1,3 +1,7 @@
+## 4.7.
+
+Today is total rest day
+
 ## 27.6.
 
 On training camp

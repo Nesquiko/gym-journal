@@ -1,3 +1,7 @@
+## 3.7.
+
+No gym, instead did jumping rope and sprints
+
 ## 26.6.
 
 Nothing, tomorrow I'm going on training camp

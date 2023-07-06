@@ -1,3 +1,14 @@
+## 5.7.
+
+Went to gym just to grease the groove
+
+1. Squats
+   - was afer a swim, so legs were heavy, also did this without belt
+   - working sets: 3 x 4 x 100kg
+2. Seated calf raises
+   - got blood flowing in my calves, nothing hardcore
+   - working sets: 3 x 15 x 35kg
+
 ## 28.6.
 
 No gym today, still on training camp
