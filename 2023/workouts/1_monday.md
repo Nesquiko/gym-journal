@@ -1,3 +1,19 @@
+## 10.7.
+
+Went to gym just to move myself, the workout wasn't hard, easy light weight
+
+1. Squats
+   - my lower back didn't hurt
+   - work up to 4 x 100kg
+2. Leg press with one leg
+3. Lat pulldownds
+4. Seated one arm rows
+5. Incline bench press
+6. Bench press
+   - felt rusty, but managed
+   - work up to 5 x 70kg
+7. Roller
+
 ## 3.7.
 
 No gym, instead did jumping rope and sprints
