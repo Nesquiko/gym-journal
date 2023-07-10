@@ -1,3 +1,7 @@
+## 6.7.
+
+Had early swim
+
 ## 29.6.
 
 Still on training camp

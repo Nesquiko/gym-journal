@@ -1,3 +1,7 @@
+## 8.7. - 9.7.
+
+Had a swim
+
 ## 1.7. - 2.7.
 
 Regeneration after training camp
