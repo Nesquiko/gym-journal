@@ -1,3 +1,7 @@
+## 20.7.
+
+Finswimming European Championships Godollo - Hungary 2023
+
 ## 6.7.
 
 Had early swim

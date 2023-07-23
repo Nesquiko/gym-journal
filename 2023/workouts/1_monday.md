@@ -1,3 +1,7 @@
+## 17.7.
+
+Finswimming European Championships Godollo - Hungary 2023
+
 ## 10.7.
 
 Went to gym just to move myself, the workout wasn't hard, easy light weight

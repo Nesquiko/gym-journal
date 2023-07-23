@@ -1,3 +1,7 @@
+## 18.7.
+
+Finswimming European Championships Godollo - Hungary 2023
+
 ## 4.7.
 
 Today is total rest day

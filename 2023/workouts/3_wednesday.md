@@ -1,3 +1,7 @@
+## 19.7.
+
+Finswimming European Championships Godollo - Hungary 2023
+
 ## 5.7.
 
 Went to gym just to grease the groove
