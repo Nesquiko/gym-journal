@@ -1,3 +1,30 @@
+## 24.7. Bulk day 1
+
+Weight: 71.3kg
+Today starts my bulk, lets see what comes out of it.
+
+1. Squats
+   - quads were shaking, don't know if it is from the squats, or from the pause I had in gym
+   - 4 x 120kg, 2 x 5 x 120kg
+2. Squats
+   - This was really nice finish for the squats
+   - 8 x 100kg
+3. Leg extenstions
+   - Slow controlled on way up and down, also with partials at the end
+   - 3 x 15 - 20 x (40, 50, 60)kg
+4. Leg curls
+   - my hamstring were pumped and burnt like hell, the partials killed them
+   - 3 x 15 - 20 x (30, 40, 50)kg
+5. Seated calf raises
+   - the 50kgs were too heavy, 40kgs are heavy enough
+   - 3 x 20 x (40, 50, 50)kg
+6. Hanging leg raises
+   - the range wasn't the greatest, burn was mid
+   - 3 x 10
+7. Crunch with twist
+   - Like this one, concentrated on the obliques and upper abs were burning
+   - 3 x 16
+
 ## 17.7.
 
 Finswimming European Championships Godollo - Hungary 2023
