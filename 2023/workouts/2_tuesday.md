@@ -1,3 +1,31 @@
+## 25.7.
+
+Today's start of the workout was little bit chaotic, because I mixed up what I
+wanted to do.
+
+1. Bent over rows
+   - Forgot that I wanted to do deadlifts first. After 2 sets I ended this
+   - 2 x 5 x 60kg
+2. Deadlift
+   - My hamstrings and lower back are dead from yesterday, the 120kg moved like a 140kg
+   - 3 x 120kg
+3. One arm dumbbell rows
+   - 3 x 10 per arm x 35kg
+4. Lat pulldowns
+   - My biceps have given up first
+   - 3 x +12 x 55kg
+5. Seated rows
+   - Biceps and back had enough, the last 2 reps were burning
+   - 3 x 12 x 50kg
+6. Dumbbell spider curls
+   - 3 x 12 - 15 x 10kg
+7. Ez overhand curls
+   - 3 x 15 x 5kg per side
+8. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 18.7.
 
 Finswimming European Championships Godollo - Hungary 2023
