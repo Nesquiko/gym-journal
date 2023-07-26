@@ -1,3 +1,22 @@
+## 26.7.
+
+1. Bench press
+   - 3 x 8 x 70kg
+2. Incline dumbbell bench press
+   - the bench destroyed my pecs, here I just finished them
+   - 3 x 6-8 x 22.5kg
+3. Cable flys
+   - slow and controlled
+   - 3 x 15 x 10kg
+4. Triceps extensions
+   - 3 x 12-15 x 15kg
+5. Hanging leg raises
+   - 3 x 10
+6. Crunch with twist
+   - 3 x 16
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 19.7.
 
 Finswimming European Championships Godollo - Hungary 2023
