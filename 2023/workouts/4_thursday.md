@@ -1,3 +1,30 @@
+## 27.7.
+
+1. Squats
+   - wasn't as easy as expected, but also it wasn't that terrible, knees caved in,
+     must keep a cue in mind to squeeze glutes
+   - 1 x 130kg
+2. Squats
+   - Around 8 reps, legs started shaking
+   - 3 x 10 x 100kg
+3. Hack Squats
+   - Didn't hit failure, but the burn was intense
+   - 3 x 12 x (40kg, 50kg, 60kg)
+4. Seated one leg calf raises
+   - Right leg was first and left just repeated what the right one did.
+     With the right, I don't feel that strong contraction as with left one
+   - 3 x 12-15 x (25kg, 20kg, 20kg)
+5. Laying leg raises
+   - Didn't feel much burn, but my whole body was shaking
+   - 3 x 10
+6. Crunch with twist
+   - 3 x 16
+7. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - laying glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - abs stretch: 3 x 15"
+
 ## 20.7.
 
 Finswimming European Championships Godollo - Hungary 2023
