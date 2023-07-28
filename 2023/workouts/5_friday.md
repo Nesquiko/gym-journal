@@ -1,3 +1,25 @@
+## 28.7.
+
+Today was little chaotic, I am still figuring out how to split my week
+
+1. Deadlift
+   - 3 x 5 x 120kg
+   - first 3 reps were solid, last two were grindy
+2. Leg curls
+   - 30kg and 40kg are light, 50kg is good
+   - 4 x 12 x (30, 40, 50, 60)kg
+3. Pullups
+   - 3 x 6
+4. Alternating dumbbell curls
+   - wasn't hard, little burn at the end
+   - 3 x 10 per arm x 12.5kg
+5. Ab wheel
+   - 3 x 10
+6. Crunch with twist
+   - 3 x 16
+7. Stretching
+   - lying bend leg on other side stretch: 3 x 15" per side
+
 ## 21.7.
 
 Finswimming European Championships Godollo - Hungary 2023
