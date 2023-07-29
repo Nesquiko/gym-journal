@@ -1,3 +1,39 @@
+## 29.7.
+
+Shoulders are dead, arms feel heavy, even in car I felt like the wheel weighs
+a ton.
+
+1. Bench press
+   - Tried to spread my legs more, and I like it. I can push with legs more
+     and my ass doesn't have any space go up
+   - 3 x 5 x 80kg
+2. Overhead press
+   - After the bench press it wasn't that good. Tried 50kg, but managed only 3 reps
+   - 3 x 6 x 40kg
+3. Dumbbell lateral raise
+   - Partials are good on this one, even though I didn't feel any strong burn,
+     my arms just couldn't move higher
+   - 3 x 16 x 10kg
+4. Dumbbell reverse flys
+   - Slow and controlled, felt my rear delts working
+   - 3 x 12 - 15 x 6kg
+5. Plate front raises
+   - Range of motion isn't greates on this one. Nonetheless burn was there
+   - 3 x 20 x 10kg
+6. Alternating Dumbbell lateral raise
+   - This burns so much...
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
+7. Lu raises
+   - Muscle fatigue was doing its job, struggled to hit 10 reps
+   - 3 x 10 x 5kg in each hand
+8. Russian twist
+   - don't know how to feel about these, I have hard time balancing and concentrating on squezing my obliques
+   - 3 x 20 x 10kg
+9. Crunch with twist
+   - 3 x 16
+10. Stretching
+    - abs stretch: 3 x 15"
+
 ## 22.7. - 23.7.
 
 Finswimming European Championships Godollo - Hungary 2023
