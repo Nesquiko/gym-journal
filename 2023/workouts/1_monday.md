@@ -1,3 +1,33 @@
+## 31.7. Bulk day 8
+
+Weight: 73.5kg
+The eating isn't easy, I don't eat candy and ice cream as I wanted, because I
+am always full.
+
+1. Squats
+   - Did them barefoot (doing rehab, because my posture isn't the best), also
+     had narrower stance, felt more quads. Up the weight!
+   - 3 x 5 x 120kg
+2. Bulgarian split squats
+   - These were tough, next time do them with straps
+   - 3 x 12 per leg x 20kg in each hand
+3. Leg extenstions
+   - Quads are fried, even though I could go for another 5 partials
+   - 3 x 15 - 20 x (50, 60, 70)kg
+4. Seated calf raises
+   - 3 x 12 - 15 x 40kg
+5. Standing calf raises
+   - Started with right leg, until failure, and then matched that with left one
+   - 3 x 15 per leg
+6. Ab wheel
+   - 3 x 10
+7. Crunch with twist
+   - 3 x 16
+8. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - abs stretch: 3 x 15"
+
 ## 24.7. Bulk day 1
 
 Weight: 71.3kg
