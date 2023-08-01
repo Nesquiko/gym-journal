@@ -1,3 +1,32 @@
+## 1.8.
+
+1. Bent over rows
+   - I can go higher, either with reps, or with weight
+   - 3 x 5 x 70kg
+2. One arm dumbbell rows
+   - Next time with the 40kg
+   - 3 x 10 per hand x 35kg
+3. Lat pulldowns neutral grip
+   - Felt my lats stretching, I like the neutral grip
+   - 3 x 12 - 15 x 55k
+4. Straight arm pushdowns
+   - Felt the pump, lats hurt on stretch
+   - 3 x 15 - 20 x (20kg, 22.5kg, 25kg)
+5. Cable curls
+   - Added twist to the top of the movement, which sped up fatigue, and then did
+     partials, and these killed me
+   - 3 x 15 x 12.5kg
+6. Ez overhand curls
+   - Forearms are pumped
+   - 3 x 12 - 15 x 5kg per side
+7. Hanging leg raises
+   - 3 x 10
+8. Crunch with twist
+   - 3 x 16
+9. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+
 ## 25.7.
 
 Today's start of the workout was little bit chaotic, because I mixed up what I
