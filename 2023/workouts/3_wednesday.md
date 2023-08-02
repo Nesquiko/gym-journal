@@ -1,3 +1,33 @@
+## 2.8.
+
+1. Bench press
+   - Overall, these were little grindy
+   - 3 x 3 x 85kg
+2. Incline dumbbell bench press
+   - Proper range of motion, touched side chest on each rep
+   - 3 x 6 x 27.5kg
+3. Dips
+   - Tried to lean forward to target more chest, I must try this again, don't know if I like it or not
+   - 3 x 8 - 12
+4. Cable flys
+   - Tried a flat dumbbell bench press, but my tris were dead, so switched to this
+   - 3 x 10 - 15 x 10kg
+5. Overhead triceps extensions
+   - Only muscle fatigue, no burn
+   - 3 x 15 x 15kg
+6. Triceps extensions
+   - Burned beautifully, parials, holds, slow eccentrics
+   - 3 x UF x 17.5kg
+7. Face pulls
+   - 3 x 12 x 12.5kg
+8. Ab wheel
+   - 3 x 10
+9. Crunch with twist
+   - 3 x 16
+10. Stretching
+    - chest stretch against wall: 2 x 30" per arm
+    - elbow over head stretch: 2 x 30" per arm
+
 ## 26.7.
 
 1. Bench press
