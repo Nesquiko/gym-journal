@@ -1,3 +1,26 @@
+## 3.8.
+
+1. Squats, barefoot
+   - This was an ATG squat for me!
+   - 1 x 130kg
+2. Squats, barefoot
+   - Beautiful, like this, out of breath, legs shaking
+   - 3 x 8 x 110kg
+3. Hack squats
+   - Even though the 40kg felt heavy, the 60kg was the same, so ignore my "feelings" and put 80kg on it
+   - 2 x 12 x 40kg, 2 x 12 x 60kg
+4. Standing calf raises
+   - Around 12 reps were full range, then few partials killed my calves
+   - 4 x 15 x 70kg
+5. Standing one leg calf raises
+   - 3 x 15 per leg
+6. Crunch with twist
+   - 3 x 16
+7. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - laying glute stretch: 2 x 30" per leg
+
 ## 27.7.
 
 1. Squats
