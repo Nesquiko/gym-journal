@@ -1,3 +1,7 @@
+## 5.8.
+
+Did todays workout yesterday, I don't have access to gym today
+
 ## 29.7.
 
 Shoulders are dead, arms feel heavy, even in car I felt like the wheel weighs

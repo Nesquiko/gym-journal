@@ -21,6 +21,31 @@
    - straight arms behind head against wall stretch: 3 x 30"
    - bicep stretch: 3 x 15" per arm
 
+### Second one
+
+1. Overhead press
+   - Wanted to do bench press, but it was taken, so did this
+   - 4 reps were proper, on 2 sets I added 5th with leg drive
+   - 3 x 4 x 50kg
+2. Dumbbell lateral raise
+   - I feel more contraction in side delts, also started feeling not just muscle fatigue
+     but also burn
+   - 3 x 15 x 10kg
+3. Dumbbell reverse flys
+   - No burn on these, just fatige at around 12th rep
+   - 3 x 15 x 6kg
+4. Cable front raise
+   - I like these more than the plate ones, bigger range of motion
+   - 3 x 12 - 15 x (8kg, 10kg, 12kg)
+5. Alternating Dumbbell lateral raise
+   - At the end I added few partials and the burn was epic
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
+6. Ab wheel
+   - Tried them more controlled and slow, but don't feel burn
+   - 3 x 10
+7. Crunch with twist
+   - 3 x 16
+
 ## 28.7.
 
 Today was little chaotic, I am still figuring out how to split my week
