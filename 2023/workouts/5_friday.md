@@ -1,3 +1,26 @@
+## 4.8.
+
+1. Deadlift
+   - Little bit of back rounding on the 140kg
+   - 2 x 1 x 140kg, 2 x 3 x 130kg
+2. One arm seated rows
+   - Went heavy on these, I am confused, because my left is sometimes stronger then right
+   - 3 x 8 per arm x (30kg, 35kg, 40kg)
+3. One arm dumbbell rows
+   - Tried this in hypertrophy range, but I don't think I can do this as blood pumper
+   - 3 x 12 x (30kg, 32.5kg, 35kg)
+4. Spider dumbbell curls
+   - 10kgs were light, but 12.5kgs were taken, so next weight was 16kg, 6 reps were okish,
+     but then muscle fatigue kicked in and couldn't even get half rep in
+   - 3 x 10 x 16kg
+5. Ez overhand curls
+   - I feel my left biceps more, I think it is because I flex my left more than right outside of gym
+   - 3 x 15 x 5kg per side
+6. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 28.7.
 
 Today was little chaotic, I am still figuring out how to split my week
