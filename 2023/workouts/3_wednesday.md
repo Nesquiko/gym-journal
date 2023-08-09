@@ -1,3 +1,24 @@
+## 9.8.
+
+Weight: 73.9kg
+
+1. Bench press
+   - First two reps were good, solid
+   - 3 x 3 x 85kg
+2. Incline dumbbell bench press
+   - I think I had 2 more reps (even though surely pretty ugly ones) in me
+   - 3 x 6 x 27.5kg
+3. Dips
+   - This time the lean forward was really easy, on the first attempt I got into a position
+     I was comfortable in and felt chest more than triceps
+   - 3 x 8 - 12
+4. Triceps extensions
+   - Burned beautifully, parials, holds, slow eccentrics
+   - 3 x UF x 20kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 2.8.
 
 1. Bench press

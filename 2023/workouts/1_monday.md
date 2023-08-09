@@ -1,3 +1,7 @@
+## 7.8. Bulk day 15
+
+Visiting grandparents, no gym today, only work around the house
+
 ## 31.7. Bulk day 8
 
 Weight: 73.5kg

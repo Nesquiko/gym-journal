@@ -1,3 +1,7 @@
+## 8.8.
+
+Visiting grandparents, no gym today, only work around the house
+
 ## 1.8.
 
 1. Bent over rows
