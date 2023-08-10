@@ -1,3 +1,23 @@
+## 10.8.
+
+1. Squats, barefoot
+   - First set was easy, all 3 reps with good form
+   - 3 x 3 x 130kg
+2. Squats, barefoot
+   - Today I combined heavy squats with volume, and my legs are destroyed
+   - 3 x 8 x 110kg
+3. Seated calf raises
+   - With 50kg I couldn't I didn't feel high burn, but high muscle fatigue
+   - 3 x 12 - 15 x 50kg
+4. Crunch with twist on incline bench
+   - 3 x 16
+5. Hanging leg raises
+   - 3 x 10
+6. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - laying glute stretch: 2 x 30" per leg
+
 ## 3.8.
 
 1. Squats, barefoot
