@@ -1,3 +1,26 @@
+## 11.8.
+
+1. Deadlift
+   - Lower back was rounding less than last week
+   - 3 x 3 x 130kg
+2. Lat pulldown
+   - Muscle fatigue started at around 7 reps
+   - 3 x 10 x 65kg
+3. One arm dumbbell rows
+   - I got weaker on this, the 40kg was heavy
+   - 3 x 8 x (30kg, 35kg, 40kg)
+4. Alternating dumbbell curls
+   - Didn't hit failure, only got a pump
+   - 3 x 10 per arm x 12.5kg
+5. Ez overhand curls
+   - Still my left arm is more involved
+   - 3 x 15 x 7.5kg per side
+6. Crunch with twist
+   - 3 x 16
+7. Ab wheel
+   - Felt my abs more after the crunch
+   - 3 x 10
+
 ## 4.8.
 
 1. Deadlift
