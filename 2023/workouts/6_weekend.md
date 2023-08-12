@@ -1,3 +1,34 @@
+## 12.8.
+
+1. Bench press
+   - Had a good warm up for shoulders, I think this is a key for feeling best during the bench press
+   - 1 x 90kg
+2. Bench press
+   - I feel the form is getting better
+   - 2 x 5 x 80kg
+3. Dumbbell shoulder press
+   - Triceps were fatigued from bench press, so they gave up first, but otherwise shoulders can manage more weight
+   - 3 x 8 x 20kg in each hand
+4. Dumbbell lateral raise
+   - Felt my rear delts contracting and I even felt a burn in them
+   - 3 x ~20 x 10kg
+5. Dumbbell reverse flys
+   - Tried to raise my arms in 45 degree angle and felt my rear delts burn
+   - 3 x 20 x 6kg
+6. Cable front raise
+   - Shoulders were fatigued, manageded to do 6 reps properly, rest were partials and with assistance
+   - 3 x 12 - 15 x 12kg
+7. Alternating Dumbbell lateral raise
+   - This burns so much...
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
+8. Lu raises
+   - Whole shoulder complex was lit up
+   - 3 x 15 x 2.5kg in each hand
+9. Crunch with twist
+   - 3 x 16
+10. Stretching
+    - abs stretch: 3 x 15"
+
 ## 5.8.
 
 Did todays workout yesterday, I don't have access to gym today
