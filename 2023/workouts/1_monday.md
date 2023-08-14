@@ -1,3 +1,23 @@
+## 14.8. Bulk day 22
+
+Weight: 75.1kg
+
+1. Squats, barefoot
+   - Lower back didn't hurt, depth as at least parallel
+   - 3 x 4 x 130kg
+2. Leg curls
+   - Couldn't bend my legs in between sets
+   - 3 x 15 - 20 x 50kg
+3. Standing leg calf raises
+   - Reached failure on each set
+   - working sets: 4 x 20 x 70kg
+4. Crunch with twist
+   - 3 x 20
+5. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - abs stretch: 3 x 15"
+   - roof: 3 x 30"
+
 ## 7.8. Bulk day 15
 
 Visiting grandparents, no gym today, only work around the house
