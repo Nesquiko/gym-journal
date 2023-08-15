@@ -1,3 +1,33 @@
+## 15.8.
+
+1. Bent over rows
+   - The 80kg was enough, for next few weeks work with this weight
+   - 5 x 70kg, 5 x 75kg, 5 x 80kg
+2. One arm dumbbell rows
+   - Tried to be more parallel with floor, I think this helped me
+   - 3 x 8 per hand x 35kg
+3. Lat pulldowns narrow underhand grip
+   - Felt burn in lats near shoulder, this burned a lot
+   - 3 x 10 - 15 x 65kg
+4. Straight arm pushdowns
+   - Went to failure on each set
+   - 3 x 10 - 15 x 25kg
+5. Spider curls
+   - I don't feel like I am flexing my biceps, only lifting the weight
+   - 3 x 12 - 15 x 12.5kg in each hand
+6. Dumbbell one arm preacher curl
+   - Tried to lift the weight by flexing, I think I maybe on the right path
+   - 3 x 12 per arm x 10kg
+7. Lying leg raises
+   - I don't feel my lower abs burning, I must play with this more
+   - 3 x 15
+8. Ab wheel to the sides
+   - 3 x 5 to each side
+9. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 8.8.
 
 Visiting grandparents, no gym today, only work around the house
