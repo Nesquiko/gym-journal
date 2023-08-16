@@ -1,3 +1,27 @@
+## 16.8.
+
+1. Bench press
+   - All 3 sets were solid
+   - 3 x 3 x 85kg
+2. Incline dumbbell bench press
+   - As said in previous week, I had 2 more in me, and not even that ugly ones
+   - 3 x 8 x 27.5kg
+3. Dips
+   - At around 8 reps I started with partials
+   - 3 x 8 - 12
+4. Cable flys
+   - Pecs are fried, partials, controlled reps => burn
+   - 3 x 10 - 15 x 10kg
+5. Triceps extensions
+   - Tris were exploding, and burning
+   - 3 x 8 - 12 x 20kg
+6. Crunch with twist
+   - Even though I thought that yesterdays leg raises didn't do any damage, today I couldn't flex abs
+   - 3 x 20
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 9.8.
 
 Weight: 73.9kg
@@ -13,7 +37,7 @@ Weight: 73.9kg
      I was comfortable in and felt chest more than triceps
    - 3 x 8 - 12
 4. Triceps extensions
-   - Burned beautifully, parials, holds, slow eccentrics
+   - Burned beautifully, partials, holds, slow eccentrics
    - 3 x UF x 20kg
 5. Stretching
    - chest stretch against wall: 2 x 30" per arm
@@ -37,7 +61,7 @@ Weight: 73.9kg
    - Only muscle fatigue, no burn
    - 3 x 15 x 15kg
 6. Triceps extensions
-   - Burned beautifully, parials, holds, slow eccentrics
+   - Burned beautifully, partials, holds, slow eccentrics
    - 3 x UF x 17.5kg
 7. Face pulls
    - 3 x 12 x 12.5kg
