@@ -1,3 +1,27 @@
+## 17.8.
+
+Today's lift was amazing, quads are destroyed and I'm drenched in sweat
+
+1. Squats, barefoot
+   - Destroyed them!
+   - 3 x 4 x 130kg
+2. Hack squat
+   - 3 x 12 x (40kg, 60kg, 80kg)
+3. Leg extensions
+   - Legs were shaking and were pumped as hell
+   - 3 x 12-15 + partials until 20 x 70kg
+4. Seated calf raises
+   - 3 x 20 x 40kg
+5. Lying leg raises
+   - Felt lower abs more than on tuesday
+   - 3 x 15
+6. Crunch with twist
+   - 3 x 20
+7. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - lying ab stretch: 4 x 15"
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 10.8.
 
 1. Squats, barefoot
