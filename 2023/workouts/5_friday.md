@@ -1,3 +1,17 @@
+## 18.8.
+
+1. Deadlift
+   - Felt solid, not much else to say
+   - 3 x 4 x 130kg
+2. Pullups
+   - I got heavier, so these are harder than I expected
+   - 3 x 8
+3. Seated rows with handles
+   - I like the handles, I can get arms behind my back
+   - 3 x 10 x (45kg, 55kg, 65kg)
+4. Stretching
+   - lying bend leg on other side stretch: 3 x 30" per side
+
 ## 11.8.
 
 1. Deadlift
