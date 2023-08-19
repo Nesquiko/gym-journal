@@ -1,3 +1,32 @@
+## 19.8.
+
+1. Bench press
+   - Could go for 2
+   - 1 x 90kg
+2. Bench press
+   - Bench press is getting solid
+   - 3 x 4 x 85kg
+3. Dumbbell lateral raise
+   - Partials are amazing on this
+   - 3 x ~20 x 10kg
+4. Dumbbell reverse flys
+   - Can feel my rear delts, one month ago I wouldn't even know
+   - 3 x 20 x 6kg
+5. Cable front raise
+   - Previous week did around 6 proper reps, this week I got around 8
+   - 3 x 12 - 15 x 12kg
+6. Alternating Dumbbell lateral raise
+   - This burns so much...
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
+7. Lu raises
+   - 3 x 15 x 2.5kg in each hand
+8. Hanging leg raises
+   - 3 x 10
+9. Crunch with twist
+   - 3 x 20
+10. Stretching
+    - abs stretch: 3 x 15"
+
 ## 12.8.
 
 1. Bench press
