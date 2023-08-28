@@ -1,3 +1,7 @@
+## 22.8.
+
+Training camp
+
 ## 15.8.
 
 1. Bent over rows

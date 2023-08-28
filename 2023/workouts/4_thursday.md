@@ -1,3 +1,11 @@
+## 24.8.
+
+Did one heavy squat, because I am on training camp. If I did more squats, I would
+die during swimming.
+
+1. Squats, barefoot
+   - 1 x 130kg
+
 ## 17.8.
 
 Today's lift was amazing, quads are destroyed and I'm drenched in sweat

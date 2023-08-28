@@ -1,3 +1,12 @@
+## 28.8.
+
+Taking one day off, training camp killed me, no point in goind in to gym and lifting
+100kg for 5 reps...
+
+## 21.8.
+
+Training camp
+
 ## 14.8. Bulk day 22
 
 Weight: 75.1kg

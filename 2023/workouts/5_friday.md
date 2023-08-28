@@ -1,3 +1,14 @@
+## 24.8.
+
+Still on training camp, but upper body isn't as stressed as lower body.
+
+1. Bench press
+   - 2 x 90kg
+2. Seated dumbbell shoulder press
+   - 12 x 20kg, 8 x 24kg
+3. Cable lateral raise
+   - 3 x ~15 per arm x 10kg
+
 ## 18.8.
 
 1. Deadlift
