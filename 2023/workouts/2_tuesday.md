@@ -1,3 +1,22 @@
+## 29.8.
+
+1. Bent over rows
+   - 6 reps were good, last 2 were either partials or with cheating
+   - 3 x 8 x 70kg
+2. One arm dumbbell rows
+   - 3 x 10 per hand x 35kg
+3. Seated one arm cable rows
+   - 3 x 10 x 30kg
+4. Straight arm pushdowns
+   - 3 x 12 - 15 x 30kg
+5. Alternating dumbbell curls
+   - 3 x 20 x 12.5kg in each hand
+6. Cable overhand curls
+   - 3 x 12 - 15 x 15kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+
 ## 22.8.
 
 Training camp
