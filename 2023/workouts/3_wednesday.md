@@ -1,3 +1,25 @@
+## 30.8.
+
+1. Bench press
+   - On the 3rd set failed the last rep
+   - 2 x 5 x 85kg, 1 x 4 x 85kg
+2. Incline dumbbell bench press
+   - Bench press left a mark on pecs, didn't go heavier because of it
+   - 3 x 8-10 x 25kg
+3. Dips
+   - 3 x 8 - 12
+4. Cable flys
+   - 3 x 8 - 12 x 12kg
+5. Triceps extensions
+   - 3 x 8 - 12 x 20kg
+6. Crunch with twist
+   - 3 x 20
+7. Lying leg raises
+   - 3 x 10
+8. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 23.8.
 
 Training camp
