@@ -1,3 +1,24 @@
+## 31.8.
+
+Today I experienced when muscles "don't wake up". Squats were hard, but not because
+the weight was heavy, but because my legs (I think mainly glutes) were "asleep".
+From bottom to middle it was fine, as usual, but in the middle to upper part of
+squat I struggled a lot, like the weight got heavier.
+
+1. Squats, barefoot
+   - 2 x 2 x 130kg, 2 x 5 x 100kg
+2. Leg extensions
+   - 4 x 10 x (50, 60, 70, 80)kg
+3. Seated calf raises
+   - 3 x 15 x 50kg
+4. Standing calf raises
+   - Squeezed calves as strong as I could, Left one started even twitching, but
+     on right one, I couldn't get that strong of an contraction
+   - 4 x 15 x 50kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 24.8.
 
 Did one heavy squat, because I am on training camp. If I did more squats, I would
