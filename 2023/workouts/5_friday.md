@@ -1,3 +1,29 @@
+## 1.9.
+
+1. Deadlift
+   - Very happy for this after yesterday, without belt, lifted 140kg for 3. On the
+     last rep, my grip started failing
+   - 2 x 3 x 140kg
+2. Seated rows
+   - Used individual handles for each arm, like it, because I can get elbows
+     further behing back
+   - 3 x 10 x 65kg
+3. Chinups
+   - My right pec started to engage at the bottom for some reason, only hit failure,
+     didn't feel any stretch or burn
+   - 3 x 6
+4. Straight arm pushdowns
+   - 3 x 8 - 12 x 30kg
+5. Spider dumbbell curls
+   - Didn't feel any pump, but then I tried the shoulder check, and I wasn't even close.
+   - 3 x 6 - 8 x 16kg
+6. Hammer curls
+   - These are great, burn, pump, failure, must stick with these
+   - 3 x 10 per each arm x 12.5kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+
 ## 24.8.
 
 Still on training camp, but upper body isn't as stressed as lower body.
