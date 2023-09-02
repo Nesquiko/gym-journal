@@ -1,3 +1,23 @@
+## 2.9.
+
+Today I experimented. Tried cable one hand lateral raises, these I didn't like,
+too heavy, even though I used 5kg. Next I tried cable reverse flies, these were
+similiar to standard dumbbell reverse flies.
+
+1. Bench press
+   - 85kg is done! move up to 90kg
+   - 3 x 5 x 85kg
+2. Dumbbell shoulder press
+   - Got stronger on these
+   - 3 x 8 x 22.5kg
+3. Dumbbell lateral raise
+   - Uped the weight, 8 reps were fine, and after them I did partials
+   - 3 x 12 x 12.5kg
+4. Dumbbell reverse flys
+   - 3 x 20 x 7kg
+5. Alternating Dumbbell lateral raise
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 6kg
+
 ## 26.8.
 
 Training camp
