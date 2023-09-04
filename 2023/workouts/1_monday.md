@@ -1,6 +1,31 @@
+## 4.9. Bulk day 45
+
+Weight: 76.2kg
+
+1. Squats, barefoot
+   - Hit parallel with this weight
+   - 1 x 140kg
+2. Squats, barefoot
+   - Now that I look at this set, I am happy with it. This weight for 3 in the early morning, is good.
+   - 2 x 3 x 130kg
+3. Dumbbell back lunges
+   - I got stronger on this, previously did only 4 reps per leg with this weight
+   - 3 x 5 per leg x 30kg in each hand
+4. Hack squats
+   - 3 x 12 x (40kg, 60kg, 60kg)
+5. Seated calf raises
+   - Right calf is doing something
+   - 3 x 12 - 15 x 50kg
+6. Standing calf raises
+   - 3 x 15 x 50kg
+7. Stretching
+   - lying quads stretch: 2 x 30" per leg
+   - lying glute stretch: 2 x 30" pre leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 28.8.
 
-Taking one day off, training camp killed me, no point in goind in to gym and lifting
+Taking one day off, training camp killed me, no point in going in to gym and lifting
 100kg for 5 reps...
 
 ## 21.8.
