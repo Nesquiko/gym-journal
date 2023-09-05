@@ -1,3 +1,28 @@
+## 5.9.
+
+1. Bent over rows
+   - Done without straps, tried to squeze lats and there is some connection
+   - 3 x 5 x 70kg
+2. Seated cable rows
+   - Like the individual handles for each hand
+   - 3 x 8 x 65kg
+3. One arm dumbbell rows
+   - Finally getting to failure on these, but with this weight can't pump reps, just partials
+   - 3 x 10 per hand x 35kg
+4. One arm pushdowns
+   - Amazing, after each set I felt pump in lats
+   - 3 x 8 - 12 x 12kg
+5. Alternating hammer curls
+   - Tried them heavy, and didn't get pumped as much
+   - 3 x 20 x 17.5kg in each hand
+6. Incline seated biceps curls
+   - The stretch on this is insane
+   - 3 x 12 x 10kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 29.8.
 
 1. Bent over rows
