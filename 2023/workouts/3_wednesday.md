@@ -1,3 +1,24 @@
+## 6.9.
+
+1. Bench press
+   - No problem, ass stayed the whole time on the bench
+   - 3 x 3 x 90kg
+2. Incline dumbbell bench press
+   - This was proper "to failure"
+   - 3 x 8 - 12 x 26kg
+3. Cable flys
+   - The stretch was insane, my pecs are pumped as hell, first time I felt pump
+     like this
+   - 3 x 12 - 15 x 10kg
+4. Cable triceps extensions
+   - Felt more upper part of triceps
+   - 3 x 12 - 15 x 25kg
+5. Cable overhead triceps extensions
+   - Even though I had only 10kg, long head was pumped, skin-tearing pump
+   - 3 x 8 - 12 x 10kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 30.8.
 
 1. Bench press
