@@ -1,3 +1,20 @@
+## 7.9.
+
+1. Squats, barefoot
+   - Two months ago I wouldn't say I would lift this weight with so much confidence, without belt, and barefoot
+   - 1 x 140kg
+2. Squats, barefoot
+   - 130kg seemed heavy, 110kg seemed light, this was nice challenge
+   - 3 x 6 x 120kg
+3. Leg press
+   - Leg extensions are better, this was more taxing on the whole body, not concentrated on quads
+   - 3 x 10 x 170kg
+4. Seated calf raises
+   - 3 x 15 x 50kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 31.8.
 
 Today I experienced when muscles "don't wake up". Squats were hard, but not because
