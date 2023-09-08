@@ -1,3 +1,23 @@
+## 8.9.
+
+1. Deadlift
+   - Form was worse than in previous week, but the grip improved
+   - 2 x 3 x 140kg
+2. Lat pulldowns
+   - 65kg is starting to feel good, up the weight?
+   - 3 x 12 x 65kg
+3. One arm seated rows
+   - Tried a dumbbell version, but in this stage of a workout, my back was fatigued,
+     so settled with this
+   - 3 x 10 per arm x (20kg, 25kg, 30kg)
+4. One arm pushdowns
+   - 3 x 8 - 12 x 7.5kg
+5. Crunch with twist
+   - 3 x 16
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 1.9.
 
 1. Deadlift
