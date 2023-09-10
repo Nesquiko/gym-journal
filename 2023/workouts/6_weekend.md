@@ -1,3 +1,21 @@
+## 10.9.
+
+1. Bench press
+   - Getting confident on 90kg
+   - 3 x 3 x 90kg
+2. Incline dumbbell bench press
+   - Felt strong today
+   - 3 x 6 - 10 x 30kg
+3. Incline chest press
+   - I have mixed feelings, the burn and stretch was insane, but I wasn't able
+     to squeeze my pecs
+   - 3 x 8 - 12 x 40kg
+4. One arm cable chest press
+   - Squeezed as hard as I could, I must work on my mind muscle connection with pecs
+   - 3 x 12 - 15 per arm x 10kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 2.9.
 
 Today I experimented. Tried cable one hand lateral raises, these I didn't like,
