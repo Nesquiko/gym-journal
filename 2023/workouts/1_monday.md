@@ -1,3 +1,23 @@
+## 11.9. Bulk day 52
+
+Weight: 77.2kg
+
+1. Squats, barefoot
+   - 2 x 1 x 140kg
+2. Squats, barefoot
+   - 8 x 120kg
+3. Leg extenstions
+   - 3 x 20 x 80kg
+4. Leg curls
+   - 3 x 20 x 40kg
+5. Seated calf raises
+   - 3 x 20 x 50kg
+6. Leg press calf raises
+   - 3 x 20 x 100kg
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 4.9. Bulk day 45
 
 Weight: 76.2kg
