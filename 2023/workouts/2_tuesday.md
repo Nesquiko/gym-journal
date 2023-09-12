@@ -1,3 +1,27 @@
+## 12.9.
+
+1. Pullups
+   - Felt strong on these, I was suprised
+   - 3 x 10
+2. Bent over rows
+   - Well, on this, I didn't felt that strong
+   - 2 x 8 x 70kg
+3. One arm dumbbell rows
+   - This felt good, previous exercises warmed up my back
+   - 3 x 8 per hand x 36kg
+4. Seated cable rows
+   - Didn't feel burn, just muscle fatigue
+   - 3 x 12 - 15 x 50kg
+5. One arm pushdowns
+   - 3 x 15 x 10kg
+6. Alternating hammer curls
+   - 3 x 20 x 17.5kg in each hand
+7. Incline seated biceps curls
+   - 3 x 10 x 10kg
+8. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - bicep stretch: 3 x 15" per arm
+
 ## 5.9.
 
 1. Bent over rows
