@@ -1,3 +1,22 @@
+## 13.9.
+
+1. Bench press
+   - Doing this in the morning, without pump means I can increase reps
+   - 3 x 3 x 90kg
+2. Incline dumbbell bench press
+   - Wanted to do more reps than with 30kg, so I lowered the weight
+   - 3 x 8 - 10 x 27.5kg
+3. Incline chest press
+   - The stretch on the bottom is insane, pecs hurt are burning
+   - 3 x 10 - 12 x 40kg
+4. One arm cable chest press
+   - Felt stronger squeeze than previously
+   - 3 x 15 per arm x 10kg
+5. Triceps extensions
+   - 3 x 12 x 27.5kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 6.9.
 
 1. Bench press
