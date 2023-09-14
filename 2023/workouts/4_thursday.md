@@ -1,3 +1,25 @@
+## 14.9.
+
+1. Squats, barefoot
+   - 2 x 2 x 140kg
+2. Squats, barefoot
+   - On monday I did 8, but the previous 140kg fatigued my legs, on 5th rep quads
+     were shaking
+   - 2 x 6 x 120kg
+3. Leg extensions
+   - Around 8 reps were perfect, another 6 were good, and then only partials
+   - 3 x 15 - 18 x 90kg
+4. Seated calf raises
+   - 3 x 15 - 18 x 50kg
+5. Standing one leg calf raises
+   - 3 x 12 per leg x 10kg
+6. Crunch with twist
+   - 3 x 20
+7. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 7.9.
 
 1. Squats, barefoot
