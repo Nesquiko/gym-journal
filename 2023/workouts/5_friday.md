@@ -1,3 +1,24 @@
+## 15.9.
+
+1. Deadlift
+   - Grip strong, form better, 150kg here I come
+   - 3 x 3 x 140kg
+2. Seated rows
+   - 3 x 10 x 65kg
+3. One arm lat pulldowns
+   - Do these, a lot of them
+   - 3 x 12 per arm x 27.5kg
+4. One arm pushdowns
+   - 3 x 15 x 12.5kg
+5. Alternating hammer curls
+   - 3 x 20 x 17.5kg in each hand
+6. Incline seated biceps curls
+   - 3 x 10 - 12 x 10kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 8.9.
 
 1. Deadlift
