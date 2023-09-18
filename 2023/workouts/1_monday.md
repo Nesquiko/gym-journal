@@ -1,3 +1,20 @@
+## 18.9. Bulk day 59
+
+Weight: 77.7kg
+
+1. Squats, barefoot
+   - 3 x 2 x 140kg
+2. Squats, barefoot
+   - 8 x 120kg, 6 x 120kg
+3. Leg extensions
+   - 3 x 20 x 100kg
+4. Standing calf raises
+   - My calves were burning
+   - 3 x 20 x 80kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 11.9. Bulk day 52
 
 Weight: 77.2kg
