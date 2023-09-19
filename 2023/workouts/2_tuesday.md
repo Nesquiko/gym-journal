@@ -1,3 +1,19 @@
+## 19.9.
+
+1. Bent over rows
+   - Try them more parallel with the ground, lower back wasn't happy
+   - 3 x 10 x 60kg
+2. One arm dumbbell rows
+   - Reached failure on 10th rep
+   - 3 x 10 per arm x 35kg
+3. One arm lat pulldowns
+   - 3 x 10 per arm x 30kg
+4. One arm pushdowns
+   - 3 x 15 x 12.5kg
+5. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 12.9.
 
 1. Pullups
