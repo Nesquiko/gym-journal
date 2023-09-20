@@ -1,3 +1,23 @@
+## 20.9.
+
+1. Bench press
+   - Wanted to do all sets for 4 reps, but managed only 1 set
+   - 4 x 90kg, 2 x 3 x 90kg
+2. Incline dumbbell bench press
+   - 3 x 8 - 10 x 30kg
+3. Incline chest press
+   - 3 x 15 x 40kg
+4. Peck deck
+   - 2 x 12 x 30kg
+5. One arm cable chest press
+   - I did too much, couldn't squeeze
+   - 3 x 15 per arm x 10kg
+6. Triceps extensions
+   - 3 x 15 x 24kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 13.9.
 
 1. Bench press
