@@ -1,3 +1,23 @@
+## 21.9.
+
+Today I chose a easier workout, I wasn't pushing myself as hard as different
+days, and I'm ok with it, not every day can be hard.
+
+1. Squats, barefoot
+   - 2 x 1 x 140kg
+2. Squats, barefoot
+   - 6 x 120kg
+3. Leg extensions
+   - 3 x 16 - 20 x 90kg
+4. Standing calf raises
+   - 3 x 20 x 80kg
+5. Crunch with twist
+   - 3 x 20
+6. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 14.9.
 
 1. Squats, barefoot
