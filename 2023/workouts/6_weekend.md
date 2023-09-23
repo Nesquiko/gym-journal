@@ -1,3 +1,23 @@
+## 23.9.
+
+1. Bench press
+   - I wasn't "in the zone" for this one, the last set I did only 3
+   - 2 x 4 x 90kg, 3 x 90kg
+2. Incline smith machine bench press
+   - Feels the same as machine press, but without the stretch
+   - 3 x 12 - 15 x 40kg
+3. Incline chest press
+   - I like this more then the smith machine variation, I can get bigger stretch
+   - 3 x 12 - 15 x 40kg
+4. Dumbbell lateral raise
+   - 3 x 16 - 20 x 10kg
+5. Dumbbell reverse flys
+   - 3 x 20 x 7kg
+6. Alternating Dumbbell lateral raise
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 7kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 16.9.
 
 1. Bench press
