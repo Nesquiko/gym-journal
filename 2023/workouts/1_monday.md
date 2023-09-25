@@ -1,3 +1,21 @@
+## 25.9. Bulk day 66
+
+Weight: 78kg
+
+1. Squats, barefoot
+   - 3 x 2 x 140kg
+2. Squats, barefoot
+   - 8 x 120kg
+3. Hack squats
+   - 3 x 12 x 80kg
+4. Leg press calf raises
+   - 3 x 20 x 140kg
+5. Standing one leg calf raises
+   - 3 x 12 per leg x 10kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 18.9. Bulk day 59
 
 Weight: 77.7kg
