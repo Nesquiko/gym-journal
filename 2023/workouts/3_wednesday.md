@@ -1,3 +1,21 @@
+## 27.9.
+
+1. Bench press
+   - 3 x 4 x 90kg
+2. Dumbbell bench press
+   - Incline was taken
+   - 3 x 8 - 10 x 30kg
+3. Incline chest press
+   - 5 x 15 x 40kg
+4. One arm cable chest press
+   - The chest press destroyed my pecs, couldn't squeeze
+   - 2 x 12 per arm x 12kg
+5. Triceps extensions
+   - 3 x 15 x 26kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 20.9.
 
 1. Bench press
