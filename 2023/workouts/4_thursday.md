@@ -1,3 +1,19 @@
+## 28.9.
+
+1. Squats, barefoot
+   - 3 x 2 x 140kg
+2. Squats, barefoot
+   - 8 x 120kg
+3. Leg extensions
+   - 3 x 10 x (110kg, 120kg, 130kg)
+4. Standing calf raises
+   - 3 x 20 x 80kg
+5. Standing one leg calf raises
+   - 3 x 15 per leg x 10kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 21.9.
 
 Today I chose a easier workout, I wasn't pushing myself as hard as different
