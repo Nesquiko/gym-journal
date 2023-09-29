@@ -1,3 +1,21 @@
+## 29.9.
+
+1. Deadlift
+   - 2 x 2 x 150kg
+2. Seated rows
+   - 3 x 12 x 65kg
+3. One arm lat pulldowns
+   - 2 x 12 per arm x 30kg, 10 per arm x 35kg
+4. One arm pushdowns
+   - 3 x 12 x (14kg, 16kg, 18kg)
+5. Alternating hammer curls
+   - 3 x 10 per arm x 20kg in each hand
+6. Incline seated biceps curls
+   - 3 x 15 x 10kg
+7. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - bicep stretch: 3 x 15" per arm
+
 ## 22.9.
 
 1. Deadlift
