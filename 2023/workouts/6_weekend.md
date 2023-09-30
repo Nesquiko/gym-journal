@@ -1,3 +1,20 @@
+## 30.9.
+
+1. Bench press
+   - 1 x 95kg, 2 x 4 x 90kg
+2. Incline dumbbell bench press
+   - 4 x 7 - 10 x 30kg
+3. Incline machine chest press
+   - 3 x 12 x 50kg
+4. Dumbbell lateral raise
+   - 3 x 16 x 12.5kg
+5. Dumbbell reverse flys
+   - 3 x 20 x 8kg
+6. Alternating Dumbbell lateral raise
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 7.5kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 23.9.
 
 1. Bench press
