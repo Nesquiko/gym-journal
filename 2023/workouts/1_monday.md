@@ -1,3 +1,19 @@
+## 2.10. Bulk day 73
+
+1. Squats, barefoot
+   - 2 x 3 x 140kg
+2. Squats, barefoot
+   - 8 x 120kg
+3. Hack squats
+   - 3 x 10 x 80kg
+4. Seated calf raises
+   - 3 x 20 x 50kg
+5. Standing calf raises
+   - 3 x 20 x 80kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 25.9. Bulk day 66
 
 Weight: 78kg
