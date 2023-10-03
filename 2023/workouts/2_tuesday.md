@@ -1,3 +1,22 @@
+## 3.10.
+
+1. Pullups
+   - 3 x 10
+2. One arm dumbbell rows
+   - 3 x 8 per arm x 40kg
+3. One arm lat pulldowns
+   - 3 x 10 per arm x 35kg
+4. One arm pushdowns
+   - 3 x 12 x 16kg
+5. Alternating hammer curls
+   - 3 x 6 - 8 per arm x 22.5kg in each hand
+6. Incline seated biceps curls
+   - 3 x 12 - 15 x 12.5kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 26.9.
 
 1. Bent over rows
