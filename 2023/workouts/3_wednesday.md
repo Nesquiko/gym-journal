@@ -1,3 +1,23 @@
+## 4.10.
+
+1. Bench press
+   - 1 x 95kg, 4 x 90kg, 3 x 90kg
+2. Incline dumbbell bench press
+   - I was suprised, lets move to 32.5kg
+   - 3 x 10 x 30kg
+3. Incline chest press
+   - 3 x 15 x 50kg
+   - 2 x 12 - 15 x 30kg
+4. One arm cable chest press
+   - 3 x 10 per arm x 10kg
+5. Skullcrashers
+   - 3 x 8 - 12 x 10kg per side
+6. Triceps extensions
+   - 3 x 15 x 25kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 27.9.
 
 1. Bench press
