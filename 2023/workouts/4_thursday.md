@@ -1,3 +1,18 @@
+## 5.10.
+
+1. Squats, barefoot
+   - 2 x 3 x 140kg
+2. Squats, barefoot
+   - 8 x 120kg
+3. Leg extensions
+   - 3 x 20 x 100kg
+4. Seated calf raises
+   - 3 x 20 x 50kg
+5. Standing calf raises
+   - 3 x 20 x 80kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
 ## 28.9.
 
 1. Squats, barefoot
