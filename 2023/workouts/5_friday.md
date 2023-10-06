@@ -1,3 +1,21 @@
+## 6.10.
+
+I switched today's pull with tomorrow's push
+
+1. Bench press
+   - attempted 100kg, got it off my chest, but failed in middle
+   - 2 x 4 x 90kg
+2. Incline dumbbell bench press
+   - 3 x 13 x 30kg
+3. Incline smith machine chest press
+   - 3 x 15 x 40kg
+4. Dumbbell lateral raise
+   - 3 x 20 x 12kg
+5. Dumbbell reverse flys
+   - 3 x 20 x 8kg
+6. Alternating Dumbbell lateral raise
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 8kg
+
 ## 29.9.
 
 1. Deadlift
