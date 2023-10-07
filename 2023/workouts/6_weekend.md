@@ -1,3 +1,26 @@
+## 7.10.
+
+Went without a pre-workout, on the deadlift I felt it
+
+1. Deadlift
+   - on the 2nd set the 2nd rep I failed at lock out
+   - 2 x 2 x 150kg
+2. Lat pulldowns
+   - 3 x 10 x 75kg
+3. One arm seated rows
+   - 3 x 15 per arm x 30kg
+4. Pushdowns
+   - 3 x 15 - 20 x 27.5kg
+5. Narrow grip underhand biceps pulldowns
+   - My whole arm is pumped, never felt so strong contraction in my biceps as on this
+   - 3 x 12 x 50kg
+6. Dumbbell biceps curls
+   - 3 x 10 per arm x 12.5kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 30.9.
 
 1. Bench press
