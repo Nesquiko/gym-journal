@@ -1,3 +1,10 @@
+## 9.10. Bulk day 80
+
+I caught some illness during weekend, took it lightly, so I don't make it worse
+
+1. Squats, barefoot
+   - 1 x 140kg
+
 ## 2.10. Bulk day 73
 
 1. Squats, barefoot
