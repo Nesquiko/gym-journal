@@ -1,3 +1,7 @@
+## 10.10.
+
+Sick, didn't go to gym.
+
 ## 3.10.
 
 1. Pullups
