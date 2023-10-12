@@ -1,3 +1,7 @@
+## 11.10.
+
+Sick, didn't go to gym.
+
 ## 4.10.
 
 1. Bench press
