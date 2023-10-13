@@ -1,3 +1,26 @@
+## 13.10.
+
+1. Deadlift
+   - 3 x 2 x 150kg
+2. One arm lat pulldowns
+   - 3 x 12 per arm x 35kg
+3. Lat pulldowns
+   - 3 x 12 - 15 x 65kg
+4. Pushdowns
+   - 3 x 12 - 15 x 30kg
+5. Narrow grip underhand biceps pulldowns
+   - This destroyed my arms
+   - 3 x 12 - 15 x 55kg
+6. Incline seated biceps curls
+   - 3 x 12 x 10kg
+7. Alternating hammer curls
+   - Biceps are gone, destroyed. On this I barely had full range
+   - 3 x 10 per arm x 12.5kg in each hand
+8. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 6.10.
 
 I switched today's pull with tomorrow's push
