@@ -1,3 +1,20 @@
+## 16.10. Bulk day 87
+
+Weight: 79.2kg
+
+1. Squats, barefoot
+   - Felt strong today, so went for 150kg
+   - 1 x 150kg
+2. Squats, barefoot
+   - 2 x 3 x 140kg
+3. Hack squats
+   - 3 x 12 x 80kg
+4. Standing calf raises
+   - 5 x 20 x 80kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 9.10. Bulk day 80
 
 I caught some illness during weekend, took it lightly, so I don't make it worse
