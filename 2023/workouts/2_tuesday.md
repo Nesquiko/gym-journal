@@ -1,3 +1,22 @@
+## 17.10.
+
+1. Bent over rows
+   - 3 x 8 x 70kg
+2. One arm dumbbell rows
+   - 3 x 8 per arm x 40kg
+3. Lat pulldowns
+   - 3 x 12 - 15 per arm x 65kg
+4. Pushdowns
+   - 3 x 12 x 30kg
+5. Narrow grip underhand biceps pulldowns
+   - 3 x 12 - 15 x 55kg
+6. Alternating hammer curls
+   - Wow, the previous exercise destroyed my biceps, how??
+   - 3 x 6 - 8 per arm x 17.5kg in each hand
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+
 ## 10.10.
 
 Sick, didn't go to gym.
