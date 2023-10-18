@@ -1,3 +1,19 @@
+## 18.10.
+
+1. Bench press
+   - 3 x 2 x 95kg
+2. Incline dumbbell bench press
+   - 3 x 8 - 12 x 30kg
+3. Incline dumbbell bench press
+   - Slow and controlled
+   - 3 x 8 x 27.5kg
+4. Incline chest press
+   - 3 x 12 x 50kg
+5. Triceps extensions
+   - 4 x 12 x 27.5kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 11.10.
 
 Sick, didn't go to gym.
