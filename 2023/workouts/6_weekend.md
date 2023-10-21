@@ -1,3 +1,21 @@
+## 21.10.
+
+1. Bench press
+   - 3 x 2 x 95kg
+2. Incline dumbbell bench press
+   - 3 x 8 x 32.5kg
+3. Incline machine chest press
+   - 3 x 15 x 50kg
+4. Incline machine chest press
+   - Slow, controlled and with stop at the bottom
+   - 2 x 12 x 40kg
+5. Cable flys
+   - 3 x 12 - 15 x (10, 12, 14)kg
+6. Dumbbell lateral raise
+   - 3 x 18 - 20 x 12.5kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 14.10.
 
 1. Bench press
