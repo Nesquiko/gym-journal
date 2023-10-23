@@ -1,3 +1,21 @@
+## 23.10. Bulk day 94
+
+Weight: 79.5kg
+
+1. Squats, barefoot
+   - 1 x 150kg
+2. Squats, barefoot
+   - 2 x 3 x 140kg
+3. Hack squats
+   - 3 x 12 x 80kg
+4. Leg curls
+   - 3 x 15 x 50kg
+5. Seated one leg calf raises
+   - 5 x 12 - 15 per leg x 20kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 16.10. Bulk day 87
 
 Weight: 79.2kg
