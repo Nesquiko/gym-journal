@@ -1,3 +1,23 @@
+## 24.10.
+
+1. Pullups
+   - Still managing to do 10, even though I am heavier
+   - 3 x 10
+2. One arm dumbbell rows
+   - 3 x 8 per arm x 42.5kg
+3. Lat pulldowns with pause
+   - 3 x 12 - 15 per arm x 65kg
+4. One arm pushdowns
+   - 3 x 12 per arm x 15kg
+5. Alternating biceps curls
+   - 3 x 6 - 8 per arm x 16kg in each hand
+6. Overhand cable curls
+   - Had a pinching pain going through my forearm to fingers on left hand
+   - 2 x 15 x 15kg
+7. Stretching
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 17.10.
 
 1. Bent over rows
