@@ -1,3 +1,19 @@
+## 26.10.
+
+Today wasn't a good day, felt weak, maybe I just imagined it.
+
+1. Squats, barefoot
+   - 1 x 150kg, 1 x 140kg
+2. Leg extensions
+   - 3 x 18 x 110kg
+3. Seated calf raises
+   - 4 x 20 x 40kg
+4. Standing one leg calf raises
+   - 3 x 15 per leg
+5. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 19.10.
 
 1. Squats, barefoot
