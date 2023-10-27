@@ -1,3 +1,20 @@
+## 27.10.
+
+1. Deadlift
+   - 2 x 2 x 150kg
+2. Seated rows
+   - 3 x 8 x 75kg
+3. Lat pulldowns with stop
+   - 3 x 15 x 65kg
+4. Narrow grip underhand biceps pulldowns
+   - 3 x 12 x 55kg
+5. Cable biceps curls
+   - Put arms infront of body and try to touch my elbows, and it hit different
+   - 3 x 15 x 12kg
+6. Stretching
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 20.10.
 
 1. Deadlift
