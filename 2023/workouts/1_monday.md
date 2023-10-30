@@ -1,3 +1,25 @@
+## 30.10. Bulk day 101
+
+Weight: 80.3kg
+
+1. Squats, barefoot
+   - Not the best depth, but getting better with this weight
+   - 2 x 150kg
+2. Squats, barefoot
+   - 4 x 140kg
+3. Squats, barefoot
+   - This was easier than I remember, it seems that I'm stronger 😏
+   - 8 x 120kg
+4. Leg extensions
+   - Legs are fried
+   - 3 x 20 x 110kg
+5. Seated calf raises
+   - Only did 3 sets, because my legs are fried
+   - 3 x 12 - 15 x 50kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 23.10. Bulk day 94
 
 Weight: 79.5kg
