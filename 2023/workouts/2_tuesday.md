@@ -1,3 +1,21 @@
+## 31.10.
+
+1. Bent over rows
+   - 3 x 10 x 70kg
+2. Seated rows
+   - 3 x 10 x 65kg
+3. Lat pulldowns with pause
+   - 3 x 15 per arm x 65kg
+4. One arm pushdowns
+   - 3 x 16 per arm x 12kg
+5. Narrow grip underhand biceps pulldowns
+   - 3 x 15 x 55kg
+6. Cable biceps curls
+   - 3 x 15 x 12kg
+7. Stretching
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 24.10.
 
 1. Pullups
