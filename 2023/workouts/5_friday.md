@@ -1,3 +1,22 @@
+## 3.11.
+
+The lat pulldown and seated rows were in maintenance, so there weren't
+other options. Also didn't train biceps, because I may have some tendont
+inflamation in my left elbow. But overall happy with the deadlift.
+
+1. Deadlift
+   - 3 x 3 x 150kg
+2. Pullups
+   - 3 x 8
+3. One hand seated rows
+   - 3 x 10 per arm x 20, 24, 28kg
+4. One arm pushdowns
+   - 2 x 12 per arm x 14kg
+5. Crunch with twist
+   - 3 x 16
+6. Stretching
+   - lying abs stretch: 4 x 15"
+
 ## 27.10.
 
 1. Deadlift
