@@ -1,3 +1,19 @@
+## 6.11. Bulk day 108
+
+Weight: 80.4kg
+
+1. Squats, barefoot
+   - 2 x 150kg, 4 x 140kg, 3 x 140kg
+2. Leg extensions
+   - 3 x 18 x 120kg
+3. Leg curls
+   - 3 x 8 - 12 full reps + till 20 partials x 60kg
+4. Standing calf raises
+   - 3 x 15 - 20 x 80kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - roof stretch: 3 x 15"
+
 ## 30.10. Bulk day 101
 
 Weight: 80.3kg
