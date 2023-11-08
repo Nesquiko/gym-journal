@@ -1,3 +1,26 @@
+## 8.11.
+
+The pain in my left elbow that I mentioned on friday is back. Today my left elbow
+felt like it is going to explode on bench. I don't know what is going on, so
+I just did light weight with few sets and reps.
+
+1. Bench press
+   - 2 x 3 x 95kg, 2 x 95kg
+2. Incline dumbbell bench press
+   - 3 x 9 x 32.5kg
+3. Machine chest press
+   - 3 x 12 x 60kg
+4. Peck deck
+   - Really squeezed pecs, the weight was nothing, but the squeezing destroyed my pecs
+   - 3 x 12 x 30kg
+5. Triceps extensions
+   - 3 x 12 - 15 x 30kg
+6. Triceps extensions with rope
+   - 3 x 12 - 15 x 15kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 1.11.
 
 1. Bench press
