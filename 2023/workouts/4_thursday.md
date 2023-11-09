@@ -1,3 +1,19 @@
+## 9.11.
+
+On saturday I have a competition, so took today lightly.
+
+1. Squats, barefoot
+   - 1 x 140kg, 8 x 120kg
+2. Hack squat
+   - 3 x 10 x 40kg
+3. Seated one leg calf raises
+   - 3 x 10 per leg x 10kg
+4. Standing one leg calf raises
+   - 3 x 10 per leg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 2.11.
 
 1. Squats, barefoot
