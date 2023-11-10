@@ -1,3 +1,12 @@
+## 10.11.
+
+Since tomorrow I have a competition, I only did deadlift single. I was in the
+morning, and I'm feeling that I am not strongest early in the morning. On 140kg
+my lower back feel comfortable.
+
+1. Deadlift
+   - 1 x 140kg
+
 ## 3.11.
 
 The lat pulldown and seated rows were in maintenance, so there weren't
