@@ -1,3 +1,24 @@
+## 12.11.
+
+Today was benchless, benches were taken, it seems that sunday is also international
+chest day...
+
+1. Incline dumbbell bench press
+   - 3 x (10, 8, 8) x 32.5kg
+2. Dips
+   - 3 x 7 complete reps + 3 partials
+3. Dumbbell bench press
+   - Slow controlled reps with full range of motion, hit failure on 6th rep everytime
+   - 3 x 6 x 25kg
+4. Peck deck
+   - 3 x 10 - 12 x 40kg
+5. Skull crushers
+   - 3 x 10 - 12 x 10kgs per side
+6. Triceps rope extentions
+   - 3 x (8 x 20kg + 5 - 8 x 15kg)
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 4.11.
 
 1. Bench press
