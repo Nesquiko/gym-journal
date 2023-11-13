@@ -1,3 +1,22 @@
+## 13.11. Bulk day 115
+
+Weight: 80.9kg
+
+1. Squats, barefoot
+   - 2 x 2 x 150kg
+2. Hack squats
+   - 3 x 15 x 80kg
+3. Leg extensions
+   - 2 x 15 x (110, 120)kg
+   - 1 x (8 x 120kg, 6 x 100kg, 6 x 80kg)
+4. Standing calf raises
+   - 3 x 15 - 20 x 80kg
+5. Standing one leg calf raises
+   - 3 x 12 per leg x 10kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - roof stretch: 3 x 15"
+
 ## 6.11. Bulk day 108
 
 Weight: 80.4kg
