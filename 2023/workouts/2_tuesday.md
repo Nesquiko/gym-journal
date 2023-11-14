@@ -1,3 +1,19 @@
+## 14.11.
+
+1. Pullups
+   - 4 x (10, 8, 6, 7)
+2. Seated rows
+   - 3 x 12 x 65kg
+3. Lat pulldowns with pause
+   - 3 x 14 - 15 per arm x 65kg
+4. Pushdowns
+   - 3 x 12 x 30kg
+5. Cable curls
+   - The elbow isn't completely healed, so I stopped
+   - 2 x 12 x 20kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+
 # 7.11.
 
 1. Pullups
