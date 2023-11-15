@@ -1,3 +1,22 @@
+## 15.11.
+
+Yesterday I didn't like how my left elbow felt, so today was more "hypertrophy",
+less weight and more reps.
+
+1. Bench press
+   - 3 x 15 x 60kg
+2. Incline dumbbell bench press
+   - slow, controlled with hold at bottom
+   - 3 x 8 - 10 x 22.5kg
+3. Peck deck
+   - 3 x 12 x 30kg
+4. Cable flys
+   - 3 x 8 - 12 x 8kg
+5. Machine chest press
+   - 3 x 12 x (40kg, 50kg, 60kg)
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 8.11.
 
 The pain in my left elbow that I mentioned on friday is back. Today my left elbow
