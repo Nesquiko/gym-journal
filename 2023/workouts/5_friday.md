@@ -1,3 +1,19 @@
+## 17.11.
+
+From tuesday I am afraid to train bicep directly, because of my left elbow.
+
+1. Deadlift
+   - Grip was strong, also I lower back was stronger than before
+   - 3 x 3 x 150kg
+2. Seated rows
+   - Slower and more controlled reps, felt my romboids burning, instead of biceps and forearms.
+   - 3 x 15 x 55kg
+3. One arm pushdowns
+   - 1 x 12 per arm x 10kg, 2 x 12 per arm x 12.5kg
+4. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 10.11.
 
 Since tomorrow I have a competition, I only did deadlift single. I was in the
