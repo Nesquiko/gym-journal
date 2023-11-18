@@ -1,3 +1,24 @@
+## 18.11.
+
+My left elbow didn't hurt, but still I'm not 100% sure that I can load it with
+tricep/bicep exercises.
+
+1. Bench press
+   - 3 x 3 x 95kg
+2. Incline dumbbell bench press
+   - 3 x (9, 10, 10) x 32kg
+3. Cable flys
+   - First time doing this on the cable/pulldown station, and the stetch was insane
+   - 3 x 10 x 15kg
+4. Dumbbell lateral raise
+   - slowed down and controlled the reps
+   - 3 x 15 x 12kg
+5. Dumbbell reverse flys
+   - 3 x 20 x 8kg
+6. Machine lateral raise
+   - I liked this, I could go to failure
+   - 3 x 16 x 25kg
+
 ## 12.11.
 
 Today was benchless, benches were taken, it seems that sunday is also international
