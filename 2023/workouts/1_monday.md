@@ -1,3 +1,25 @@
+## 20.11. Bulk day 122
+
+Weight 81kg
+
+I am struggling with the bulk, I am not gaining any weight, the eating is getting
+hard (I never thought that I would say this).
+
+Today was "light" leg day, not much volume. Last monday I overdone it and the
+swim was horrible, my legs were destroyed.
+
+1. Squats, barefoot
+   - 3 x 2 x 150kg
+2. Leg curls
+   - 3 x 15 x 65kg
+3. Leg press machine calf raises
+   - Today I experimented with this, I didn't get strong burn, but the muscle
+     fatigue was strong
+   - 3 x 20 x 140kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 13.11. Bulk day 115
 
 Weight: 80.9kg
