@@ -1,3 +1,21 @@
+## 21.11.
+
+1. Pullups
+   - 3 x 10, 9, 8
+2. One arm dumbbell rows
+   - 3 x 10 per arm x 42.5kg
+3. Lat pulldowns with pause
+   - 3 x 12 - 15 per arm x 65kg
+4. One arm machine rows
+   - This is a new machine, but I don't know if I like it, must try again
+   - 3 x 10 per arm x 20kg
+5. Cable cursl
+   - Very light, to see how my left elbow is going, and it still needs rest
+   - 3 x 15 x 10kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+
 ## 14.11.
 
 1. Pullups
