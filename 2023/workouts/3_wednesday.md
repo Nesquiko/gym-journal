@@ -1,3 +1,20 @@
+## 22.11.
+
+I'm not feeling well, and left elbow is still little rusty.
+
+1. Bench press
+   - 3 x 12 x 60kg
+2. Incline dumbbell bench press
+   - 3 x 8 x 25kg
+3. Peck deck
+   - 3 x 10 x 40kg
+4. Machine one arm chest press
+   - 3 x 10 per arm x 15kg
+5. Cable flys
+   - 3 x 12 x 10kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 15.11.
 
 Yesterday I didn't like how my left elbow felt, so today was more "hypertrophy",
