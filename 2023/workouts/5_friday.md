@@ -1,3 +1,7 @@
+## 24.11.
+
+Still don't feel healthy for the gym, but tomorrow I will go.
+
 ## 17.11.
 
 From tuesday I am afraid to train bicep directly, because of my left elbow.
