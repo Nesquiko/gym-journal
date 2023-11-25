@@ -1,3 +1,24 @@
+## 25.11.
+
+As promised yesterday, today I went to gym, no longer feeling crappy. Still
+no biceps, giving my left elbow all the time it needs.
+
+1. Deadlift
+   - lower back was rounding a bit, it needs more activation before deadlift,
+     not just sitting behind computer
+   - 2 x 2 x 150kg
+2. Lat pulldowns with neutral grip
+   - I liked this one a lot
+   - 3 x 20, 15, 15 x 65kg
+3. Seated rows
+   - Back was fryed from the pulldowns
+   - 3 x 12 - 15 x 55kg
+4. One arm pushdowns
+   - 3 x 10 per arm x 12.5kg
+5. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 18.11.
 
 My left elbow didn't hurt, but still I'm not 100% sure that I can load it with
