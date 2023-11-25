@@ -1,3 +1,7 @@
+## 23.11.
+
+I am sick, caught a cold or something. Today is no-gym day.
+
 ## 16.11.
 
 1. Squats, barefoot
