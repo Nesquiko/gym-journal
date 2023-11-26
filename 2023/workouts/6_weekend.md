@@ -1,3 +1,20 @@
+## 26.11.
+
+1. Bench press
+   - 3 x 3 x 95kg
+2. Incline dumbbell bench press
+   - 3 x (10, 9, 6) x 32.5kg
+3. Peck deck
+   - 6 x 12 - 15 x 40kg
+4. Dumbbell lateral raise
+   - 3 x 16 x 12.5kg
+5. Dumbbell reverse flys
+   - 3 x 20 x 7.5kg
+6. Dumbbell lateral raise
+   - 3 x 16 x 10kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 25.11.
 
 As promised yesterday, today I went to gym, no longer feeling crappy. Still
