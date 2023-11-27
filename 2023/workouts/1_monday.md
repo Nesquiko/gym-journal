@@ -1,3 +1,30 @@
+## 27.11. Cut day 1
+
+Weight 81kg
+
+After last week I decided to stop bulkikng. Reasons are: Swimming was hard, I was
+out of breath, but the times were slow. And then I was struggling to get past 81kg.
+On cut I will be eating ~2.2K calories daily. I approximate that during the bulk
+I ate around 3K calories.
+
+1. Squats
+   - Tried them with my lifting shoes. Like them (or I am more used to) barefoot.
+     I felt my lower back more and they weren't as deep as barefoot.
+   - 2 x 150kg
+   - 4 x 140kg
+2. Hack squats
+   - Don't know how or why, but my legs were dead after 2 sets
+   - 2 x 15 x 80kg
+3. Leg curls
+   - 3 x 18 - 20 x 60kg
+4. Seated calf raises
+   - Finally felt squezing in my right calf! I squeezed living shit ouf of my
+     right calf. Even though I only did 3 sets, my calves were shaking
+   - 3 x 20 x 40kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 20.11. Bulk day 122
 
 Weight 81kg
