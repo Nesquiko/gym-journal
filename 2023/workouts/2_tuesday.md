@@ -1,3 +1,27 @@
+## 28.11.
+
+1. Pullups
+   - Gaining my strength back on pullups
+   - 3 x 10
+2. One arm dumbbell rows
+   - 3 x 10 per arm x 42.5kg
+3. Seated wide neutral grip rows
+   - With wider and neutral grip I didn't feel my arms as much, so I could focus on back
+   - 3 x 16 x 55kg
+4. Pushdowns with rope
+   - I'm starting to like this exercise with rope, I can hit failure more easily
+   - 3 x 14 - 16 x 20kg
+5. Cable curls
+   - Left elbow didn't yell, getting more comfortable with it
+   - 3 x 15 x 12.5kg
+6. Incline seated biceps curls
+   - I didn't do this exercise for a while, and it shows
+   - 2 x 10 - 12 x 10kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 21.11.
 
 1. Pullups
