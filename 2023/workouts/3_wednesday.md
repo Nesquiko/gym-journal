@@ -1,3 +1,23 @@
+## 29.11.
+
+I'm starting to play with thought that when I have workout in the morning I will
+do less weights and more volume, since I'm noticeably weaker.
+
+1. Bench press
+   - 2 x 95kg, 1 x 95kg, 8 x 80kg, 6 x 80kg
+2. Incline dumbbell bench press
+   - 3 x 8 x 30kg
+3. Peck deck
+   - 6 x 12 - 15 x 40kg
+4. Triceps extensions
+   - Left elbow is quiet for now
+   - 3 x 15 x 20kg
+5. Triceps overhead extensions with rope
+   - 2 x 12 - 15 x 10kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 22.11.
 
 I'm not feeling well, and left elbow is still little rusty.
