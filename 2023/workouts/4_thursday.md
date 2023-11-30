@@ -1,3 +1,16 @@
+## 30.11.
+
+1. Squats, barefoot
+   - 1 x 140kg, 2 x 140kg, 3 x 140kg
+   - 8 x 100kg
+2. Reverse lunges
+   - 3 x 4 per leg x 30kg in each hand
+3. One leg extensions
+   - 3 x 12 per leg x (30, 40, 50)kg
+4. Standing calf raises
+   - 3 x 20 x 80kg
+   - 3 x 20 x 40kg
+
 ## 23.11.
 
 I am sick, caught a cold or something. Today is no-gym day.
