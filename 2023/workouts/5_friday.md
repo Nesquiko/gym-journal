@@ -1,3 +1,24 @@
+## 1.12.
+
+1. Deadlift:
+   - 2 x 2 x 150kg
+2. Seated rows
+   - 3 x 12 - 20 x 65kg
+3. Lat pulldowns neutral grip
+   - 3 x 12 - 18 x 65kg
+4. Pushdowns with rope
+   - 3 x 14 - 16 x 20kg
+5. Alternating dumbbell curls
+   - 3 x 10 per arm x 12.5kg
+6. Alternating hammer curls
+   - 3 x 10 per arm x 12.5kg
+7. Cable curls
+   - 3 x 16 x 10kg
+8. Stretching
+   - on knees lats stretch: 2 x 15" per direction
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 24.11.
 
 Still don't feel healthy for the gym, but tomorrow I will go.
