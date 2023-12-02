@@ -1,3 +1,23 @@
+## 2.12.
+
+1. Bench press
+   - The second set for 4 reps was important, even the form as bad as I thought it might be
+   - 3 x 95kg, 4 x 95kg, 2 x 6 x 80kg
+2. Incline dumbbell bench press
+   - 3 x 7 + 1 negative x 32.5kg
+3. Machine incline chest press
+   - 3 x 8 + 2 partials x 50kg
+4. Peck deck
+   - 3 x 15 x 40kg
+5. Dumbbell lateral raise
+   - 3 x 15 x 12.5kg
+6. Reverse peck deck
+   - 3 x 15 x 30kg
+7. Alternating Dumbbell lateral raise
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) + 6 - 10 partials x 8kg
+8. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 26.11.
 
 1. Bench press
