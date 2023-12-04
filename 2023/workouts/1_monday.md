@@ -1,3 +1,27 @@
+## 4.12. Cut day 8
+
+Weight 79.1kg
+
+1. Squats, barefoot
+   - even though I only squatted 140kg, I'm happy with this squat session. Today
+     not even once I thought about not being able to push 140kg, my only thoughts
+     were about how to have proper form and not overload my lower back.
+   - 3 x 2 x 140kg
+2. Squats, barefoot
+   - Need to once again start doing these, I feel like this is maybe one part of
+     stronger squat for me
+   - 8 x 120kg
+3. Leg curls
+   - 2 x 16 x 70kg
+   - as much as possible with 70kg, 60kg, 50kg
+4. Seated calf raises
+   - 3 x 18 x 50kg
+5. Standing calf raises
+   - 3 x +20 x 40kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 27.11. Cut day 1
 
 Weight 81kg
