@@ -1,3 +1,23 @@
+## 5.12.
+
+1. Pullups
+   - 3 x ~8 + 2 partials
+2. One arm dumbbell rows
+   - 3 x 8 per arm x 42.5kg
+3. Lat pulldowns
+   - 3 x 12 - 15 per arm x 65kg
+4. Seated wide neutral grip rows
+   - 2 x 12 x 45kg
+5. Pushdowns with rope
+   - 3 x 12 - 15 x 22.5kg
+6. Alternating biceps curls
+   - 3 x 10 - 12 per arm x 12.5kg in each hand
+7. Ez bar overhand curls
+   - working sets: 3 x 15 x 7.5kg per side
+8. Stretching
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 28.11.
 
 1. Pullups
