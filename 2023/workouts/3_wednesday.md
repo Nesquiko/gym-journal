@@ -1,3 +1,19 @@
+## 6.12.
+
+1. Bench press
+   - 1 x 95kg
+   - 2 x 6 x 80k
+2. Incline dumbbell bench press
+   - 3 x 8 x 30kg
+3. Peck deck
+   - 3 x 12 - 15 x 50kg
+   - 3 x 12 - 15 x 30kg
+4. Triceps extensions
+   - 3 x 16 x 22.5kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 29.11.
 
 I'm starting to play with thought that when I have workout in the morning I will
