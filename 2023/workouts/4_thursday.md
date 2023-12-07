@@ -1,3 +1,22 @@
+## 7.12.
+
+My back is weak from yesterday's cupping, squats were not good today
+
+1. Squats, barefoot
+   - 2 x 1 x 120kg
+2. Hack squats
+   - I don't know how, or why, but my legs are weak in the morning
+   - 3 x 8 x 80kg
+3. Leg extensions
+   - On this I could finally do some heavy weight, maybe some walking
+     before morning leg workout would do me good?
+   - 3 x 15 x 110kg
+4. Standing calf raise
+   - 3 x 20 x 80kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 30.11.
 
 1. Squats, barefoot
