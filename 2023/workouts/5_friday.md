@@ -1,3 +1,7 @@
+## 9.12.
+
+No gym today, going on saturday and sunday with the boys
+
 ## 1.12.
 
 1. Deadlift:

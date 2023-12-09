@@ -1,3 +1,17 @@
+## 9.12.
+
+1. Bench press
+   - On the 4th rep but came little off the bench
+   - 2 x 4 x 95kg
+2. Incline dumbbell bench press
+   - 3 x (10, 10, 8) x 32kg
+3. Peck deck
+   - 3 x 12 - 16 x (38, 45, 51)kg
+4. Cable lateral raise
+   - 3 x 20 per arm x 5kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 2.12.
 
 1. Bench press
