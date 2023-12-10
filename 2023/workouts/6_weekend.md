@@ -1,3 +1,17 @@
+## 10.12.
+
+Went with boys, so the workout was longer, but had fun
+
+1. Deadlift
+   - Lower back wasn't up to it today...
+   - 2 x 1 x 150kg
+2. Lat pulldowns
+   - 3 x ~15 + assisted until failure x 65kg
+3. Seated rows wide grip
+   - 2 x +16 x 55kg
+4. Pushdowns with rope
+   - 2 x 14 - 16 x 22.5kg
+
 ## 9.12.
 
 1. Bench press
