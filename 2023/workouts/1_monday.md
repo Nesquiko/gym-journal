@@ -1,3 +1,24 @@
+## 11.12. Cut day 15
+
+Weight 78.5kg
+
+My lower back is killing me, I tried 5 mins on treadmill walking, to see if that
+would help, but no.
+
+1. Squats, barefoot
+   - 1 x 140kg
+2. Leg extensions
+   - pyramid 10 reps to 110kg
+3. Leg extensions
+   - 3 x 18 - 24 x 80kg
+4. Standing calf raises
+   - 3 x 18 - 20 x 80kg
+5. Crunch with twist
+   - 3 x 10 per side
+6. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 4.12. Cut day 8
 
 Weight 79.1kg
