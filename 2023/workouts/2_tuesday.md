@@ -1,3 +1,22 @@
+## 12.12.
+
+1. Pullups
+   - 3 x 10
+2. Lat pulldowns neutral grip
+   - 3 x 12 x 65kg
+3. Machine rows
+   - 3 x 15 x 40kg
+4. Pulldowns
+   - 3 x 16 x 20kg
+5. Alternating bicep curls
+   - 3 x 5 + 3 hammer curls per arm x 16kg
+6. Cable curls
+   -3 x 16 - 20 x 14kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 5.12.
 
 1. Pullups
