@@ -1,3 +1,24 @@
+## 13.12.
+
+1. Bench press
+   - Yeah, I'm not at my strongest in the morning
+   - 2 x 95kg
+   - 2 x 6 x 80k
+2. Incline dumbbell bench press
+   - 2 x 6 - 8 x 32.5kg
+3. Incline dumbbell bench press
+   - These were full range of motion, controlled
+   - 2 x 10 x 26kg
+4. Peck deck
+   - 6 x 12 - 15 x 40kg
+5. Triceps extensions
+   - 3 x 12 + 4 partials x 25kg
+6. Triceps extensions with rope
+   - 2 x 12 + 4 partials x 15kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 6.12.
 
 1. Bench press
