@@ -1,3 +1,23 @@
+## 14.12.
+
+I think I will go back to the lifting shoes for squats. When I'm barefoot,
+the but wink is killing my lower back.
+
+1. Squats
+   - 1 x 140kg
+   - 8 x 120kg
+2. Reverse lunges
+   - 3 x 5 per leg x 25kg in each hand
+3. Leg extensions
+   - 3 x 18 - 20 x (80, 90, 100)kg
+4. Seated calf raises
+   - 3 x 16 x 50kg
+5. Standing one leg calf raises
+   - 3 x 18 per leg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 7.12.
 
 My back is weak from yesterday's cupping, squats were not good today
