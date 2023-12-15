@@ -1,3 +1,27 @@
+## 15.12.
+
+1. Deadlift
+   - Happy with today's deadlifts, even though I only pulled 140kg. I didn't
+     go through the pain and harm my lower back.
+   - 2 x 2 x 140kg
+   - 8 x 120kg
+2. Lat pulldowns
+   - surprisingly, 75kg isn't as heavy as I thought
+   - 3 x 8 + 4 partials x 75kg
+3. Pushdowns
+   - 3 x 16 x 25kg
+4. Seated rows
+   - 3 x 15 x 45kg
+5. Alternating bicep curls
+   - 3 x 10 per arm x 12.5kg
+6. Cable curls
+   - 3 x (6 - 8 x 18kg + 4 - 6 x 14kg)
+7. Incline seated biceps curls
+   - 3 x 8 - 12 per arm x 7.5kg
+8. Stretching
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 9.12.
 
 No gym today, going on saturday and sunday with the boys
