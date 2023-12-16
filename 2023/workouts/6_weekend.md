@@ -1,3 +1,19 @@
+## 16.12.
+
+Not in gym mood today, but went, did the workout, had a great pump!
+
+1. Bench press
+   - 2 x 2 x 95kg
+   - 8 x 80kg
+2. Incline dumbbell bench press
+   - 4 x 6 - 8 x (30kg, 32.5kg, 27.5kg, 27.5kg)
+3. Cable flys
+   - 3 x 15 x 10kg
+4. Peck deck
+   - 3 x 12 x 50kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 10.12.
 
 Went with boys, so the workout was longer, but had fun
