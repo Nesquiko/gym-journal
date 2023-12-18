@@ -1,3 +1,23 @@
+## 18.12. Cut day 22
+
+Weight 77.6kg
+
+1. Squats
+   - Felt strong today, getting used to the lifting shoes. This 150kg was with
+     good depth, the technique was little worse than I would like to
+   - 1 x 150kg
+2. Squats
+   - 2 x 6 x 120kg
+3. Bulgarian split squats
+   - Legs are burning, I'm out of breath
+   - 3 x 15 per leg x 12.5kg in each hand
+4. Standing calf raises
+   - 3 x 20 x 80kg
+   - 3 x 20 x 40kg
+5. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 11.12. Cut day 15
 
 Weight 78.5kg
