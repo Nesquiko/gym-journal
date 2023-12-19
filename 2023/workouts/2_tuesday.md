@@ -1,3 +1,24 @@
+## 19.12.
+
+1. Pullups
+   - 3 x 10
+2. One arm dumbbell rows
+   - 3 x 10 per arm x 40kg
+3. Lat pulldowns neutral grip
+   - 3 x 12 x 75kg
+4. One arm seated rows
+   - Pyramid to 10 per amr x 30kg
+5. Lat pulldown machine
+   - Don't know if I like this machine, maybe if I knew how to contract my
+     lats, then I would feel this movement
+   - 3 x 10 x 50kg
+6. Narrow grip underhand biceps pulldowns
+   - 3 x 12 x 65kg
+7. Incline seated biceps curls
+   - 2 x 12 - 15 per arm x 10kg
+8. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 12.12.
 
 1. Pullups
