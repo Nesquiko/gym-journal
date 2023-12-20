@@ -1,3 +1,18 @@
+## 20.12.
+
+1. Bench press
+   - 1 x 95kg
+   - 8 x 80kg
+2. Weighted dips
+   - 3 x 6 - 8 x 20kg
+3. Incline dumbbell bench press
+   - 3 x 8 - 10 x 30kg
+4. Peck deck
+   - 3 x 12 x 50kg
+   - 3 x 12 - 15 x 30kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 13.12.
 
 1. Bench press
