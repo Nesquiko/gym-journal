@@ -1,3 +1,22 @@
+## 28.12.
+
+Did a lighter workout after holidays
+
+1. Squats
+   - 1 x 140kg
+   - 4 x 120kg
+2. Leg extensions
+   - 3 x 15 - 18 x 100kg
+3. Standing calf raises
+   - 3 x 16 - 20 x 80kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
+## 21.12.
+
+Going on holidays to grandparents
+
 ## 14.12.
 
 I think I will go back to the lifting shoes for squats. When I'm barefoot,
