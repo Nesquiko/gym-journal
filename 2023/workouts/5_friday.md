@@ -1,3 +1,8 @@
+## 29.12.
+
+Had other things I needed to do, mainly catch up on sleep... Will do todays
+workout during the weekend
+
 ## 22.12.
 
 On holidays visiting grandparents

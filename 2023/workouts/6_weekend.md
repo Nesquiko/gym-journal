@@ -1,3 +1,17 @@
+## 30.12.
+
+1. Bench press
+   - 4 x 90kg
+   - 8 x 80kg
+2. Incline dumbbell bench press
+   - 3 x 8 - 10 x 30kg
+3. Incline smith bench press
+   - 3 x 12 - 15 x 15kg per side
+4. Cable flys
+   - 3 x 16 + partials x 10kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 23.12.
 
 On holidays visiting grandparents
