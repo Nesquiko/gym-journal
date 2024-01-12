@@ -1,3 +1,27 @@
+## 12.1.
+
+1. Deadlift
+   - 3 x 140kg, 2 x 140kg, 1 x 140kg
+2. Lat pulldowns
+   - 3 x 12 x 65kg
+3. Seated rows
+   - 3 x 12 x 55kg
+4. Straight arm pulldowns
+   - 3 x 12 - 15 x 25kg
+5. Hanging leg raises
+   - 3 x 10
+6. Crunch
+   - 3 x 15
+7. Alternating dumbbell curls
+   - 3 x 7 - 8 per arm x 16kg
+8. Cable curls
+   - 3 x 12 - 15 x 16kg
+9. Incline seated biceps curls
+   - 3 x 8 - 12 per arm x 8kg
+10. Stretching
+    - straight arms behind head against wall stretch: 3 x 30"
+    - bicep stretch: 3 x 15" per arm
+
 ## 5.1.
 
 1. Deadlift
