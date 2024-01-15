@@ -1,3 +1,21 @@
+## 15.1.
+
+1. Squats
+   - I feel I must put more work in squats, since I am not bulking, more singles,
+     doubles, .... Not just a one heavy set and then a lighter one. 5 sets in total, maybe
+   - 3 x 1 x 130kg
+2. Step ups
+   - changed for higher box, bigger stretch
+   - 3 x 10 per leg
+3. Leg curls
+   - 3 x 12 - 15 x 60kg
+4. Standing calf raises
+   - 3 x 15 x 80kg
+   - 3 x 20 x 40kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 8.1.
 
 After a while doing leg day, and I felt like I forgot how to squat
