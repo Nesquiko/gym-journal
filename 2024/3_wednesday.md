@@ -1,3 +1,21 @@
+## 17.1.
+
+1. Bench press
+   - 3 x 3 x 90kg
+2. Incline dumbbell bench press
+   - Couldn't get 35s up...
+   - 3 x 6 - 8 x 32.5kg
+3. Incline machine chest press
+   - 3 x (~8 + 3 - 4 partials) x 60kg
+4. Cable flies
+   - 3 x (~12 x 14kg + ~8 x 10kg)
+5. Cable flies
+   - Slowed, controlled, with big stretch at the bottom, also tried squeezing
+     at the top
+   - 2 x (~10 x 10kg + ~8 x 4kg)
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 10.1.
 
 1. Bench press
