@@ -1,3 +1,20 @@
+## 19.1.
+
+Today's workout was shit... Redoing today during weekend
+
+1. Deadlift
+   - 4 x 1 x 140kg
+2. Seated rows
+   - 3 x 12 x 65kg
+3. One arm lat pulldowns
+   - 3 x 10 per arm x 12kg
+4. Hanging leg raises
+   - 3 x 10
+5. Side planks with rotation
+   - 4 x 10 per side
+6. Band anti-rotation abs
+   - 3 x 10 per side
+
 ## 12.1.
 
 1. Deadlift
