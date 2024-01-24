@@ -1,3 +1,23 @@
+## 24.1.
+
+Went after morning swim, felt it a bit
+
+1. Bench press
+   - 4 x 2 x 90kg
+2. Incline dumbbell bench press
+   - 3 x 8 x 30kg
+3. Incline machine chest press
+   - 3 x (~8 + 3 - 4 partials) x 60kg
+4. Peck deck
+   - 3 x ~12 x 40kg
+5. Triceps extensions
+   - 3 x ~9 full range + ~5 partials x 25kg
+6. Skullcrushers
+   - 3 x ~6 full range + ~5 partials x 10kg per side
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 17.1.
 
 1. Bench press
