@@ -1,3 +1,17 @@
+## 26.1.
+
+1. Deadlift
+   - Am I dead from the week, 100kg felt like 140kg
+   - 6 x 100kg
+2. Seated rows
+   - 3 x 12 x 55kg
+3. Neutral grip lat pulldowns
+   - 3 x 12 x 55kg
+4. One arm lat pulldowns
+   - 3 x 10 per arm x 10kg
+5. Stretching
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 19.1.
 
 Today's workout was shit... Redoing today during weekend
