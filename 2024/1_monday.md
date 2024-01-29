@@ -1,3 +1,23 @@
+## 29.1.
+
+1. Split lunges
+   - 6 per leg x (20, 30, 40, 50)kg
+2. Bulgarian split squats
+   - 3 x 12 per leg x 10kg in each hand
+3. Step ups
+   - 3 x 12 per leg
+4. Hyperextensions
+   - 3 x 12
+5. Seated calf raises
+   - 3 x 12 x 50kg
+6. Leg press calf raises
+   - 3 x 20 x 90kg
+7. One leg standing calf raises
+   - 3 x 15 per leg
+8. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 22.1.
 
 Squats feel bad, like a shit, don't know what is going on...
