@@ -1,3 +1,27 @@
+## 30.1.
+
+1. Pullups with weight
+   - 3 x 6 x 10kg
+2. Seated rows
+   - 3 x 10 x 65kg
+3. Neutral grip lat pulldowns
+   - 3 x ~10 full reps + 2 partials x 65kg
+4. Machine one arm rows
+   - 3 x 15 per arm x 15kg
+5. Straight arm pulldowns
+   - 8 x 25kg
+   - 3 x 12 - 15 x 20kg
+6. Narrow grip underhand biceps pulldowns
+   - Pulled elbows more down, the contractions in biceps were stronger
+   - 3 x 12 x 55kg
+7. Incline biceps curls
+   - Combo with the biceps pulldowns is great
+   - 3 x 8 - 10 x 10kg
+8. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 23.1.
 
 1. Pullups with weight
