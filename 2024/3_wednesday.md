@@ -1,3 +1,21 @@
+## 31.1.
+
+Today went to different gym with friend.
+
+1. Bench press
+   - 3 x 6 x 80kg
+2. Incline dumbbell bench press
+   - 3 x 8 - 10 x 30kg
+3. Machine chest press
+   - 3 x ~12 x 35kg per arm
+4. Triceps extensions
+   - 3 x ~10 x 25kg
+5. Overhead triceps extensions
+   - 3 x ~12 x 12.5kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 24.1.
 
 Went after morning swim, felt it a bit
