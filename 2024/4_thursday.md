@@ -1,3 +1,21 @@
+## 1.2.
+
+1. Split lunges
+   - 3 x 6 per leg x 60kg
+2. Bulgarian split squats
+   - 3 x 12 per leg x 10kg in each hand
+3. Step ups
+   - 3 x 12 per leg
+4. Standing one leg calf raises
+   - 4 x 18 - 20 per leg x 10kg
+5. Cable side rotations
+   - 3 x 10 per side x 6kg
+6. Cable anti-rotation abs
+   - 3 x 10 per side x 8kg
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 25.1.
 
 Giving squats a pause for 2 weeks, this monday was a signal from my body.
