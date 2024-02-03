@@ -1,3 +1,7 @@
+## 2.2.
+
+Rest day, I have cupping today
+
 ## 26.1.
 
 1. Deadlift
