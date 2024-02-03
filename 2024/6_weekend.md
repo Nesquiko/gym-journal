@@ -1,3 +1,20 @@
+## 3.2.
+
+Very satisfied with today's push day, pecs were pumped, bench press was
+moving.
+
+1. Bench press
+   - 3 x 4 x 82.5kg
+2. Incline dumbbell bench press
+   - 3 x 6 x 32.5kg
+3. Cable flies
+   - This set was godlike, contraction, burn, stretch
+   - 5 x ~8 full + ~4 partials x 12kg
+4. Dumbbell lateral raise
+   - 5 x 16 - 18 x 10kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 28.1.
 
 1. Cable side rotations
