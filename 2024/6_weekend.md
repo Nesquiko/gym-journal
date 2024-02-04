@@ -1,3 +1,16 @@
+## 4.2.
+
+1. Pullups with weight
+   - 3 x 5 - 6 x 10kg
+2. Seated rows
+   - 3 x 8 - 10 x 65kg
+3. Neutral grip lat pulldowns
+   - 3 x 10 full reps + ~5 partials x 55kg
+4. One arm straight arm pulldowns
+   - 3 x 12 - 15 x 10kg
+5. Preacher dumbbell biceps curls
+   - 3 x 10 - 12 x 12kg
+
 ## 3.2.
 
 Very satisfied with today's push day, pecs were pumped, bench press was
