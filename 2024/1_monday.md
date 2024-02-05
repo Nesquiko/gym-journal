@@ -1,3 +1,25 @@
+## 5.2.
+
+After ~2 weeks I did squats today, I must do more than 1 or 2 reps. Today I did
+3 x 6, braced properly, tried to not go on my heels, focused on stability. My
+lower back was good, no pain, quads were weak.
+
+1. Squats
+   - 3 x 6 x 100kg
+2. Bulgarian split squats
+   - 3 x 12 per leg x 12kg in each hand
+3. Step ups
+   - 3 x 10 per leg
+4. Leg curls + goble squats
+   - 3 x (~15 x 50kg) + (12 x 20kg kettlebell)
+5. Cable side rotations
+   - 3 x 10 per side x 7.5kg
+6. Cable anti-rotation abs
+   - 3 x 10 per side x 7.5kg
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 29.1.
 
 1. Split lunges
