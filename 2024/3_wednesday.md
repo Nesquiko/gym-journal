@@ -1,3 +1,23 @@
+## 7.2.
+
+1. Bench press
+   - 4 x 5 x 82.5kg
+2. Incline dumbbell bench press
+   - 3 x 8 full range of motion x 27.5kg
+3. Cable flies
+   - 3 x 8 full range with squeeze at the top + ~4 partials x 12kg
+4. Triceps extensions
+   - 3 x ~8 x 30kg
+5. Triceps extensions with rope
+   - 3 x ~12 x 15kg
+6. Hanging leg raises
+   - felt my lower abs contracting, must work on them
+   - 3 x 10
+7. Slow, controlled crunch
+   - 3 x 10
+8. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 31.1.
 
 Today went to different gym with friend.
