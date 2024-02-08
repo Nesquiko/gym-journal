@@ -1,3 +1,28 @@
+## 8.2.
+
+Lighter leg workout today, competition on weekend and since I am swimming
+every day, I must start to reevaluate my training split
+
+1. Squats
+   - Squats felt better then on monday, had a good feeling from the 120kg
+   - 2 x 120kg
+   - 6 x 100kg
+2. Standing calf raises
+   - 3 x ~12 full range + ~8 partials x 80kg
+3. Seated one leg calf raises
+   - 3 x 12 per leg x 15kg
+4. Standing one leg calf raises
+   - 3 x ~15 per leg x 12kg
+5. Cable side rotations
+   - 3 x 10 per side x 6kg
+6. Cable anti-rotation abs
+   - 3 x 10 per side x 8kg
+7. TRX dolphin kick
+   - 3 x 10
+8. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 1.2.
 
 1. Split lunges
