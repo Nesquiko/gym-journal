@@ -1,3 +1,7 @@
+## 9.2.
+
+Rest day, competition tomorrow
+
 ## 2.2.
 
 Rest day, I have cupping today
