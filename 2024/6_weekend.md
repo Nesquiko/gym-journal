@@ -1,3 +1,23 @@
+## 11.2.
+
+Went to different gym today, not swithing, just wen with friends into a
+"American style gym"
+
+1. Bench press
+   - There were no 1.25kg plates, so had to go with 85kg, and to my suprise
+     5 reps were manageable
+   - 3 x 5 x 85kg
+2. Machine chest press
+   - 3 x 8 full range + ~5 partials x 68kg
+3. Peck deck
+   - 3 x 8 full range + ~6 partials x 48kg
+4. Dumbbell lateral raise
+   - 3 x 12 - 15 x 12.5kg
+5. Face pulls
+   - 3 x 15 x 18kg
+6. Alternating Dumbbell lateral raise
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 7.5kg
+
 ## 4.2.
 
 1. Pullups with weight
