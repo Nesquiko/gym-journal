@@ -1,3 +1,25 @@
+## 12.2.
+
+My confidence on squats is slowly returning.
+
+1. Squats
+   - 6 x 100kg, 2 x 6 x 105kg
+2. Bulgarian split squats
+   - 3 x 10 per leg x 15kg in each hand
+3. Back lunges
+   - 3 x 6 per leg x 40kg
+4. One leg curls
+   - 3 x 10 per leg x 25kg
+5. Hanging leg raises
+   - 3 x 10
+6. Cable side rotations
+   - 3 x 10 per side x 8kg
+7. TRX dolphin kick
+   - 3 x 10
+8. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 5.2.
 
 After ~2 weeks I did squats today, I must do more than 1 or 2 reps. Today I did
