@@ -1,3 +1,17 @@
+## 13.2.
+
+I am dead from yesterday's swim, woke feeling like a truch ran over me. After
+a half hour I decided this workout is pointless, and did 15min cardio.
+
+1. Pullups with weight
+   - 3 x 5 x 12kg
+2. Seated rows
+   - 3 x 10 x 55kg
+3. One arm lat pulldowns
+   - 3 x 10 per arm x 10kg
+4. Dumbbell bicep curls
+   - 3 x 8 - 9 per arm x 12.5kg
+
 ## 6.2.
 
 1. Pullups with weight
