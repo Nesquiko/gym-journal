@@ -1,3 +1,27 @@
+## 15.2.
+
+1. Bench press
+   - No strength whatsovere, probably from this week's swims
+   - 3 x 3 x 82.5kg
+2. Incline dumbbell bench press
+   - 3 x 8 x 30kg
+3. Cable flies
+   - Didn't see that instead of 12kg I had 14kg, nevertheless, had good pump
+   - 5 x 8 full range with squeeze at the top + ~4 partials x 14kg
+4. Triceps extensions
+   - 3 x 8 + ~6 partials x 25kg
+5. Underhand triceps extensions
+   - 3 x ~15 x 15kg
+6. Overhead triceps extensions
+   - 3 x ~12 x 10kg
+7. Side planks with rotation
+   - 3 x 10 per side x 2kg
+8. TRX dolphin kick
+   - 3 x 10
+9. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 8.2.
 
 Lighter leg workout today, competition on weekend and since I am swimming

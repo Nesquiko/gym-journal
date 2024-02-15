@@ -1,3 +1,8 @@
+## 14.2.
+
+Today is rest day, I have school so I don't have time to go to gym after
+morning swim.
+
 ## 7.2.
 
 1. Bench press
