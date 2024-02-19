@@ -1,3 +1,21 @@
+## 19.2.
+
+1. Squats
+   - 3 x 6 x 105kg
+2. Bulgarian split squats
+   - 3 x 10 per leg x 15kg in each hand
+3. Hack squats
+   - 3 x 12 x 40kg
+4. Leg curls
+   - 3 x 8 full + ~7 partials x 60kg
+5. One leg deadlift
+   - 3 x 10 per leg x 8kg in each hand
+6. Standing one leg calf raises
+   - 6 x 10 full + 5 partials x 8kg
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 12.2.
 
 My confidence on squats is slowly returning.
