@@ -1,3 +1,29 @@
+## 20.2.
+
+I didn't repeat the mistake from previous week, and slept 1h more and it helped.
+
+1. Pullups with weight
+   - 3 x 5 x 12.5kg
+2. One arm dumbbell rows
+   - 3 x 8 per arm x 40kg
+3. Lat pulldowns
+   - 3 x 8 full + 4 partials x 65kg
+4. Straight arm pulldowns
+   - 3 x ~8 full + until 15 partials x 25kg
+5. Narrow grip underhand biceps pulldowns
+   - 3 x ~8 full reps + 4 partials x 55kg
+6. Incline biceps curls
+   - 3 x 8 full + ~3 hammer curls partials per arm x 12.5kg
+7. Preacher dumbbell curls
+   - 3 x 10 per arm x 10kg
+8. Cable side rotations
+   - 3 x 10 per side x 7.5kg
+9. TRX dolphin kick
+   - 3 x 12
+10. Stretching
+    - straight arms behind head against wall stretch: 3 x 30"
+    - bicep stretch: 3 x 15" per arm
+
 ## 13.2.
 
 I am dead from yesterday's swim, woke feeling like a truch ran over me. After
