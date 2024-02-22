@@ -1,3 +1,21 @@
+## 22.2.
+
+1. Bench press
+   - 3 x 5 x 80kg
+2. Incline dumbbell bench press
+   - 3 x 8 x 27.5kg
+3. Peck deck
+   - 4 x 8 full range with squeeze at the top + partials until 12 x 40kg
+4. Triceps extensions with rope
+   - 3 x 8 + ~4 partials x 20kg
+5. Dumbbell french press
+   - 3 x ~12 x 7.5kg in each hand
+6. Triceps kickbacks
+   - 3 x 12 x 6kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 15.2.
 
 1. Bench press
