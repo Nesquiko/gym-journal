@@ -1,3 +1,21 @@
+## 26.2.
+
+1. Squats
+   - 2 x 6 x 110kg
+2. Leg extensions
+   - 3 x 8 full + ~4 partials x 100kg
+3. Step ups
+   - 3 x 12 per leg
+4. One leg deadlift
+   - 3 x 10 per leg x 8kg in each hand
+5. Seated calf raises
+   - 3 x ~15 x 40kg
+6. Standing one leg calf raises
+   - 3 x 8 full + ~4 partials x 10kg
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 19.2.
 
 1. Squats
