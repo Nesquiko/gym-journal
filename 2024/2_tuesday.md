@@ -1,3 +1,30 @@
+## 27.2.
+
+1. Pullups with weight
+   - 3 x 5 x 12kg
+2. Straight arm pulldowns
+   - Today switched things up, tried this in heavy variation
+   - 3 x ~8 full + 10 partials x 30kg
+3. Neutral grip lat pulldowns
+   - Controlled with squeeze at the bottom
+   - 3 x ~10 full reps + 2 partials x 55kg
+4. Narrow grip underhand biceps pulldowns
+   - 3 x ~8 full reps + 2 partials x 65kg
+5. Alternating dumbbell curls
+   - 3 x 8 - 9 per arm x 12.5kg
+6. Incline biceps curls
+   - 3 x ~8 full + ~3 hammer curls partials per arm x 10kg
+7. Ez bar overhand curls
+   - 3 x 12 - 15 x 7.25kg per side
+8. Hanging leg raises
+   - 3 x 10
+9. Cable anti-rotation abs
+   - 3 x 10 per side x 8kg
+10. Stretching
+    - elbow over head stretch: 2 x 30" per arm
+    - straight arms behind head against wall stretch: 3 x 30"
+    - bicep stretch: 3 x 15" per arm
+
 ## 20.2.
 
 I didn't repeat the mistake from previous week, and slept 1h more and it helped.
