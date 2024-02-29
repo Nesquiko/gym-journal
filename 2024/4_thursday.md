@@ -1,3 +1,21 @@
+## 29.2.
+
+1. Bench press
+   - 3 x 5 x 80kg
+2. Incline dumbbell bench press
+   - I was suprised that 30kg was same as 27.5kg, seems I am stronger than I think
+   - 3 x 8 x 30kg
+3. Dips
+   - Went for good stretch on the bottom
+   - 3 x ~8
+4. Cable flies
+   - 3 x 8 full range with squeeze at the top + ~4 partials x 14kg
+5. Triceps extensions
+   - 3 x 8 + ~4 partials x 24kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 22.2.
 
 1. Bench press
