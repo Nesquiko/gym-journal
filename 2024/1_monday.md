@@ -1,3 +1,18 @@
+## 4.3.
+
+1. Squats
+   - 2 x 1 x 120kg
+   - 2 x 8 x 100kg
+2. Bulgarian split squats
+   - 3 x 10 per leg x 15kg in each hand
+3. Hyperextensions
+   - 3 x 12 x 10kg
+4. Seated calf raises
+   - 3 x 15 x 45kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 26.2.
 
 1. Squats
