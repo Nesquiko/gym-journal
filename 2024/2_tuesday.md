@@ -1,3 +1,22 @@
+## 5.3.
+
+1. Pullups with weight
+   - 3 x 6 x 12kg
+2. One arm dumbbell rows
+   - 3 x 8 per arm x 40kg
+3. Lat pulldowns
+   - 3 x ~12 full + until 15 partials x 65kg
+4. Straight arm pushdowns
+   - 3 x ~12 x 25kg
+5. Alternating dumbbell curls
+   - 3 x ~8 per arm x 15kg
+6. Overhand barbell curls
+   - 3 x 18 x 17.5kg
+7. Abs 3 x
+   - dead bug with plate x 8 per side
+   - slow crunch x 8
+   - mediceball side throws x 7 per side
+
 ## 27.2.
 
 1. Pullups with weight
