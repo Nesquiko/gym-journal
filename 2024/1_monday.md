@@ -1,3 +1,7 @@
+## 11.3.
+
+Rest day after training camp, logs today would be meaningless
+
 ## 4.3.
 
 1. Squats

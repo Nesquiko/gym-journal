@@ -1,3 +1,8 @@
+## 6.3.
+
+Today is rest day, I have school so I don't have time to go to gym after
+morning swim.
+
 ## 28.2.
 
 Today is rest day, I have school so I don't have time to go to gym after
