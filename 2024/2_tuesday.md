@@ -1,3 +1,29 @@
+## 12.3.
+
+1. Explosive Pullups
+   - They weren't as explosive, but the were the most explosive I could perform
+   - 3 x 6
+2. Seated rows
+   - 3 x 10 x 65kg
+3. Neutral grip lat pulldowns
+   - 3 x ~10 full reps + 2 partials x 55kg
+4. Straight arm pushdowns
+   - 3 x ~12 x 26kg
+5. Narrow grip underhand biceps pulldowns
+   - 3 x 12 x 55kg
+6. Alternating dumbbell curls
+   - 3 x 8 - 9 per arm x 12.5kg
+7. Dead bug
+   - 3 x 8 per leg x 10kg
+8. Hanging leg raises
+   - 3 x 10
+9. Cable side rotations
+   - 3 x 10 per side x 7.5kg
+10. Stretching
+    - elbow over head stretch: 2 x 30" per arm
+    - straight arms behind head against wall stretch: 3 x 30"
+    - bicep stretch: 3 x 15" per arm
+
 ## 5.3.
 
 1. Pullups with weight
