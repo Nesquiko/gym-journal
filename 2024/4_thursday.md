@@ -1,3 +1,24 @@
+## 14.3.
+
+1. Bench press
+   - Didn't push hard on this, 3 reps were solid
+   - 3 x 3 x 80kg
+2. Incline dumbbell bench press
+   - I'm glad that I can still push 30kgs
+   - 3 x 8 x 30kg
+3. Cable flies
+   - 3 x ~8 full reps + ~4 partials x 14kg
+   - 3 x ~8 full reps + ~4 partials x 10kg
+4. Triceps extensions
+   - 3 x 8 + ~5 partials x 25kg
+5. Overhead triceps extensions
+   - 3 x 8 full ranges + ~4 partials x 15kg
+6. Triceps extensions with rope
+   - 2 x ~15 x 12.5kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 7.3.
 
 Training camp
