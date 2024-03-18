@@ -1,3 +1,13 @@
+## 18.3.
+
+Catched cold during the weekend, cold sweat was point when I stopped and went home
+
+1. Box squats
+   - 3 x 6 x 80kg
+2. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 11.3.
 
 Rest day after training camp, logs today would be meaningless
