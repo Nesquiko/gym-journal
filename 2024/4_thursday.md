@@ -1,3 +1,26 @@
+## 21.3.
+
+1. Bench press
+   - 3 x 4 x 80kg
+2. Incline dumbbell bench press
+   - 3 x 8 x 30kg
+3. Cable flies
+   - 3 x ~8 full reps + ~4 partials x 14kg
+   - 2 x ~8 full reps + ~4 partials x 10kg
+4. Triceps extensions
+   - 3 x ~11 x 26kg
+5. French dumbbell press
+   - 3 x 8 full ranges + ~4 partials x 8kg in each hand
+6. Triceps extensions with rope
+   - 2 x ~15 x 12.5kg
+7. Cable rotations
+   - 3 x 8 per side x 7.5kg
+8. Hanging leg raises
+   - 3 x 10
+9. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 14.3.
 
 1. Bench press
