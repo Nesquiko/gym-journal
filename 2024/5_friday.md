@@ -1,3 +1,22 @@
+## 22.3.
+
+1. Bent over rows
+   - 3 x 8
+2. Lat pulldowns
+   - 3 x ~12 x 65kg
+3. Neutral grip rows
+   - 3 x ~8 full reps + 4 partials x 55kg
+4. Straight arm pushdowns
+   - 3 x ~15 x 20kg
+5. Alternating dumbbell curls
+   - 3 x 10 - 12 per arm x 12.5kg
+6. Incline biceps curls
+   - 3 x ~10 full + ~3 partials per arm x 10kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 8.3.
 
 Training camp
