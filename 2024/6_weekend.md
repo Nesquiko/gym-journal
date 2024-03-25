@@ -1,3 +1,22 @@
+## 25.3.
+
+1. Box squats
+   - 3 x 6 x 80kg
+2. Explosive split squats
+   - 3 x 6 per leg x 40kg
+3. Hyperextensions
+   - 3 x 10 x 10kg
+4. Standing calf raises
+   - 3 x 12 x 80kg
+   - 3 x 16 x 40kg
+5. Dead bug
+   - 3 x 8 per side x 10kg
+6. TRX dolphin kick
+   - 3 x 12
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 11.2.
 
 Went to different gym today, not swithing, just wen with friends into a
