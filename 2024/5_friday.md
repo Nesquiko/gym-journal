@@ -1,3 +1,20 @@
+## 5.4.
+
+1. Pullups
+   - 3 x 10
+2. Seated rows
+   - 3 x 10 x 60kg
+3. Machine one arm rows
+   - 3 x 10 per arm x (25, 30, 35)kg
+4. Lat pulldowns
+   - 3 x ~12 x 65kg
+5. T pose cable bicep curls
+   - 3 x 15 x (10, 15, 20)kg
+6. Dumbbell curls
+   - 3 x ~10 per arm x 12kg
+7. Cable rope curls
+   - 3 x 12 x 35kg
+
 ## 22.3.
 
 1. Bent over rows
