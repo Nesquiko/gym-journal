@@ -1,3 +1,19 @@
+## 7.4.
+
+1. Squats
+   - 1 x 130kg
+   - 2 x 6 x 100kg
+2. Reverse lunges
+   - 3 x 8 per leg x 20kg in each hand
+3. Leg curls
+   - 3 x ~15 x 50kg
+4. Seated calf raises
+   - 4 x ~20 x 40kg
+   - 2 x 20 x 20kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 25.3.
 
 1. Box squats
