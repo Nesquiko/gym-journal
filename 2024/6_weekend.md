@@ -1,3 +1,21 @@
+## 14.4.
+
+1. Squats
+   - 2 x 1 x 120kg
+2. Box squats
+   - 3 x 6 x 80kg
+3. Jumps with dumbbells
+   - 3 x 8 x 8kg in each hand
+4. Box jumps
+   - 3 x 6
+5. Medicine-ball side throws
+   - 3 x 8 per side x 6kg
+6. Hanging leg raises
+   - 3 x 12
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - abs stretch: 2 x 15"
+
 ## 7.4.
 
 1. Squats
