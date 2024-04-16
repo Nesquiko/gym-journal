@@ -1,3 +1,24 @@
+## 16.4.
+
+1. Pullups
+   - 3 x 10
+2. Seated rows
+   - 3 x 8 x 65kg
+3. Lat pulldowns
+   - 3 x 12 x 55kg
+4. One arm lat pushdowns
+   - 3 x 12 per arm x 10kg
+5. Narrow grip underhand biceps pulldowns
+   - 3 x 12 x 55kg
+6. Bicep dumbbell curls
+   - 3 x 10 per arm x 12.5kg
+7. Seated dumbbell curls
+   - 3 x ~10 x 10kg
+8. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 15" per arm
+
 ## 12.3.
 
 1. Explosive Pullups
