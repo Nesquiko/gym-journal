@@ -1,3 +1,19 @@
+## 18.4.
+
+1. Bench press
+   - 2 x 3 x 80kg
+2. Incline dumbbell bench press
+   - 2 x 8 x 30kg
+3. Peck deck
+   - 3 x 8 - 10 x 50kg
+4. Cable flies
+   - 3 x ~8 full reps + ~4 partials x (10, 12, 14)kg
+5. Face pulls
+   - 3 x 12 x 12.5kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 11.4.
 
 1. Bench press
