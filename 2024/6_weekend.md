@@ -1,3 +1,21 @@
+## 21.4.
+
+1. Squats
+   - Tried narrow stance with quads as the main driver, and today I liked it
+   - 3 x 2 x 120kg
+   - 1 x 6 x 100kg
+2. Hack squats
+   - 3 x 12 x 40kg
+3. Seated calf raises
+   - 4 x 15 x 45kg
+4. Hanging leg raises
+   - 3 x 12
+5. Suitcase hold
+   - 2 x 30" per side x 28kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 14.4.
 
 1. Squats
