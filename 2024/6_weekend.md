@@ -1,3 +1,19 @@
+## 28.4.
+
+1. Squats
+   - 3 x 2 x 120kg
+2. Explosive box squats
+   - 3 x 6 x 80kg
+3. Seated calf raises
+   - 4 x 15 x 40kg
+4. Hanging leg raises
+   - 3 x 12
+5. Suitcase hold
+   - 2 x 30" per side x 28kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 21.4.
 
 1. Squats
