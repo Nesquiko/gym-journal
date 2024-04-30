@@ -1,3 +1,23 @@
+## 30.4.
+
+1. Pullups
+   - 3 x 8
+2. One arm dumbbell rows
+   - Straps are helpful on this one
+   - 3 x 8 per arm x 35kg
+3. Lat pulldowns
+   - 3 x ~12 x 55kg
+4. Lat pushdowns
+   - 3 x 12 x 25kg
+5. Bicep dumbbell curls
+   - 3 x 8 per arm x 15kg
+6. Seated dumbbell curls
+   - 3 x ~15 x 10kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 2 x 30" per arm
+
 ## 16.4.
 
 1. Pullups
