@@ -1,3 +1,21 @@
+## 5.5.
+
+1. Squats
+   - 3 x 2 x 120kg
+2. Leg curls
+   - 3 x 10 x 60kg
+3. Hyperextensions
+   - 3 x 10 x 20kg
+4. Standing one leg calf raises
+   - 3 x 12 per leg x 10kg
+5. Hanging leg raises
+   - 3 x 12
+6. Suitcase hold
+   - 2 x 30" per side x 28kg
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 28.4.
 
 1. Squats
