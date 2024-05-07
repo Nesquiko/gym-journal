@@ -1,3 +1,22 @@
+## 7.5.
+
+Today was a quick workout.
+
+1. Deadlift
+   - Didn't do these in long time, shins are not used to the bar like they used to be
+   - 3 x 4 x 100kg
+2. Pullups
+   - 3 x 8 - 10
+3. Lat pushdowns
+   - 3 x 12 x 25kg
+4. Bicep dumbbell curls
+   - 3 x 8 per arm x 15kg
+5. Seated dumbbell curls
+   - 3 x ~15 x 10kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 2 x 30" per arm
+
 ## 30.4.
 
 1. Pullups
