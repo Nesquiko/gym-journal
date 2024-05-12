@@ -1,3 +1,18 @@
+## 12.5.
+
+This upcoming weekend I have a competition, so taking it lighlty this week
+
+1. Squats
+   - 3 x 1 x 120kg
+2. Box squats
+   - 3 x 4 x 80kg
+3. Seated calf raises
+   - 3 x 10 x 40kg
+4. Hanging leg raises
+   - 3 x 12
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
 ## 5.5.
 
 1. Squats
