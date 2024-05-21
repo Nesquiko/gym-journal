@@ -1,3 +1,24 @@
+## 21.5.
+
+1. Deadlift
+   - 3 x 6 x 100kg
+2. Machine hip thrust
+   - 3 x 10 x 20kg
+3. Leg curls
+   - 3 x 12 x 50kg
+4. Hyperextensions
+   - 3 x 10 x 20kg
+5. Mediceball side throws
+   - 3 x 8 per side x 4kg
+6. Hanging leg raises
+   - 3 x 12
+7. Suit case hold
+   - 3 x 30" per side x 28kg
+8. Stretching
+   - band hamstring stretch: 2 x 30" per leg
+   - lying on back glute stretch: 2 x 30" per side
+   - lying abs stretch: 3 x 15"
+
 ## 7.5.
 
 Today was a quick workout.
