@@ -1,3 +1,21 @@
+## 30.5.
+
+Starting to train for specifically for 100 and 200
+
+1. Squats
+   - 2 x 15 x 70kg
+2. Leg extensions
+   - 3 x 15 x (60, 70, 80)kg
+3. Leg curls
+   - 3 x 15 x 50kg
+4. Hyperextensions
+   - 3 x 15 x 10kg
+5. Leg press calf raises
+   - 3 x 20 x 100kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch: 2 x 30" per leg
+
 ## 23.5.
 
 1. Bench press
