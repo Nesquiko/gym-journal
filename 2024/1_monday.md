@@ -1,3 +1,22 @@
+## 3.6.
+
+1. Squats
+   - 3 x 15 x 70kg
+2. Leg extensions
+   - 3 x 15 x 80kg
+3. Leg curls
+   - 3 x 15 x 50kg
+4. Machine hip thrusts
+   - 3 x 12 x 25kg
+5. Hyperextensions
+   - 3 x 15 x 10kg
+6. Standing calf raises
+   - 3 x 20 x 40kg
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - laying hamstring stretch: 2 x 30" per leg
+   - laying glute stretch: 2 x 30" per leg
+
 ## 18.3.
 
 Catched cold during the weekend, cold sweat was point when I stopped and went home
