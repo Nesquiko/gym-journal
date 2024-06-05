@@ -1,3 +1,29 @@
+## 5.6.
+
+Today I combined chest and back, not much to say. It was ok...
+
+1. Bench press
+   - 3 x 4 x 80kg
+2. Pull ups
+   - 3 x 10
+3. Incline dumbbell chest press
+   - 3 x 8 x 30kg
+4. Seated rows
+   - 3 x 8 x 65kg
+5. Cable flys
+   - 3 x 12 x 14kg
+6. Lat pushdowns with rope
+   - 3 x 12 x 20kg
+7. Cable bicep curls with rope + Tricep extensions with rope
+   - 3 x 12 - 15 + 12 - 15 x 15kg, 20kg
+8. Incline bench bicep dumbbell curls + Dumbbell french press
+   - 3 x 12 - 15 + 12 - 15 x 10kg, 10kg
+9. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 2 x 30" per arm
+
 ## 6.3.
 
 Today is rest day, I have school so I don't have time to go to gym after
