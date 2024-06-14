@@ -1,3 +1,20 @@
+## 14.6.
+
+1. Bench press
+   - 3 x 4 x 80kg
+2. Incline dumbbell bench press
+   - 3 x 8 x 30kg
+3. Cable flies
+   - 3 x ~12 x 14kg
+4. Triceps extensions
+   - 3 x ~12 x 25kg
+5. French dumbbell press
+   - 3 x ~15 x 10kg in each hand
+6. Standing calf raises
+   - 3 x 15 x 80kg
+7. Standing calf raises
+   - 3 x 20 x 40kg
+
 ## 5.4.
 
 1. Pullups
