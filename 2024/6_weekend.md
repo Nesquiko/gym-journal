@@ -1,3 +1,17 @@
+## 16.6.
+
+1. Squats
+   - 2 x 15 x 80kg
+2. Leg extensions
+   - 3 x 15 x 90kg
+3. Leg curls
+   - 3 x 15 x 60kg
+4. Hyperextensions
+   - 3 x 15 x 15kg
+5. Standing calf raises
+   - 3 x 15 x 80kg
+   - 3 x 20 x 40kg
+
 ## 12.5.
 
 This upcoming weekend I have a competition, so taking it lighlty this week
