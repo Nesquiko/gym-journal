@@ -1,3 +1,17 @@
+## 23.6.
+
+1. Squats
+   - 15 x 90kg
+2. Leg extensions
+   - 3 x 15 x 90kg
+3. Hyperextensions
+   - 3 x 15 x 20kg
+4. Standing calf raises
+   - 3 x 15 x 80kg
+   - 3 x 20 x 40kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
 ## 16.6.
 
 1. Squats
