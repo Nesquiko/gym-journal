@@ -1,3 +1,19 @@
+## 21.7.
+
+1. Bench press
+   - 3 x 4 x 80kg
+2. Incline bench press
+   - 3 x 8 x 30kg
+3. Cable flies
+   - 3 x ~8 + 4 partials x 14kg
+4. Triceps extensions
+   - 3 x ~8 + 2 partials x 30kg
+5. Overhead triceps extensions
+   - 3 x 10 - 12 x 15kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 23.6.
 
 1. Squats
