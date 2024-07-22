@@ -1,3 +1,15 @@
+## 22.7.
+
+1. Squats
+   - 1 x 120gk
+   - 3 x 5 x 100kg
+2. Leg curls
+   - 3 x ~8 + 4 partials x 60kg
+3. Leg extensions
+   - 3 x ~12 + 3 partials x 90kg
+4. Seated calf raises
+   - 3 x 15 x 50kg
+
 ## 3.6.
 
 1. Squats
