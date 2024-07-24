@@ -1,3 +1,16 @@
+## 24.7.
+
+Still sore from sunday, so lighter workout.
+
+1. Bench press
+   - 3 x 4 x 80kg
+2. Cable flies
+   - 3 x ~8 + 4 partials x 14kg
+3. Peck deck
+   - 3 x 8 - 10 x 50kg
+4. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 5.6.
 
 Today I combined chest and back, not much to say. It was ok...
