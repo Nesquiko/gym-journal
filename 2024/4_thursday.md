@@ -1,3 +1,15 @@
+## 25.7.
+
+1. Squats
+   - 1 x 120gk
+   - 3 x 5 x 100kg
+2. Hack squats
+   - 3 x 12 x 40kg
+3. Leg extensions
+   - 3 x ~8 + 4 partials x 100kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
 ## 30.5.
 
 Starting to train for specifically for 100 and 200
