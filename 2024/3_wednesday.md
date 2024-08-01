@@ -1,3 +1,20 @@
+## 31.7.
+
+1. Bench press
+   - 1 x 85kg
+   - 3 x 5 x 80kg
+2. Incline dumbbell bench press
+   - 3 x 8 full range of motion x 30kg
+3. Peck deck
+   - 3 x 8 + ~4 partials x 40kg
+4. Triceps extensions
+   - 3 x ~8 x 30kg
+5. French dumbbell press
+   - 3 x ~15 x 10kg in each hand
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 24.7.
 
 Still sore from sunday, so lighter workout.
