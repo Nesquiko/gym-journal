@@ -1,3 +1,20 @@
+## 2.8.
+
+1. Deadlift
+   - 3 x 5 x 100kg
+2. Seated rows with neutral grip
+   - This isn't good combination with the deadlift, but pulleys were taken
+   - 3 x 8 x 55kg
+3. Lat pushdowns
+   - 3 x 12 x 25kg
+4. Ez bar bicep curls
+   - 3 x ~15 x 10kg per side
+5. Cable biceps curls
+   - 3 x ~12 x 15kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+
 ## 29.12.
 
 Had other things I needed to do, mainly catch up on sleep... Will do todays
