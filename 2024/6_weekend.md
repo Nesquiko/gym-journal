@@ -1,3 +1,19 @@
+## 3.8.
+
+1. Bench press
+   - 3 x 5 x 80kg
+2. Incline dumbbell press
+   - First set was 10, then 9 and then 6, but the strength is increasing
+   - 3 x 6 - 10 x 30kg
+3. Cable flies
+   - 3 x ~10 x 16kg
+4. Dumbbell lateral raises
+   - 3 x 12 - 15 x 12.5kg
+5. Dumbbell reverse flies
+   - 3 x 20 x 7.5kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 28.7.
 
 1. Squats
