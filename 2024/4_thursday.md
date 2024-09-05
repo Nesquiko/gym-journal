@@ -1,3 +1,16 @@
+## 5.9.
+
+Well after the World Championship and summer break I am back.
+
+1. Squats
+   - 3 x 5 x 100kg
+2. Leg extensions
+   - 3 x 12 x 80kg
+3. Standing leg raises
+   - 3 x 12 x 80kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
 ## 25.7.
 
 1. Squats
