@@ -1,3 +1,19 @@
+## 6.9.
+
+1. Deadlift
+   - 3 x 5 x 100kg
+2. Lat pulldowns
+   - 3 x 12 x 55kg
+3. Straight arm pushdowns
+   - 3 x 12 x 22.5kg
+4. Hammer curls
+   - 3 x 10 per arm x 12.5kg
+5. Incline biceps curls
+   - 3 x 12 - 15 per arm x 10kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+
 ## 14.6.
 
 1. Bench press
