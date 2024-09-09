@@ -1,3 +1,19 @@
+## 9.9.
+
+1. Squats
+   - 3 x 6 x 100kg
+2. Back lunges
+   - 3 x 8 per leg x 25kg
+3. Machine glute bridges
+   - 3 x 10 x 25kg
+4. Leg press calf raises
+   - 3 x 20 x 100kg
+5. One leg seated calf raises
+   - 3 x 12 per leg x 20kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 22.7.
 
 1. Squats
