@@ -1,3 +1,21 @@
+## 12.9.
+
+1. Bench press
+   - 3 x 4 x 80kg
+2. Incline dumbbell bench press
+   - 3 x 8 x 30kg
+3. Cable flies
+   - 3 x 8 full + ~4 partials x 14kg
+4. Peck deck
+   - 3 x 8 full + ~2 partials x 40kg
+5. Triceps extensions with rope
+   - 3 x ~12 x 20kg
+6. Dumbbell french press
+   - 3 x ~10 x 10kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 5.9.
 
 Well after the World Championship and summer break I am back.
