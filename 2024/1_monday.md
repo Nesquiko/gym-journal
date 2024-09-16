@@ -1,3 +1,19 @@
+## 16.9.
+
+1. Squats
+   - 1 x 120kg
+   - 3 x 4 x 110kg
+2. Leg extensions
+   - 3 x ~8 + 7 partials x 90kg
+3. Machine glute bridges
+   - 3 x 10 x 25kg
+4. Leg press calf raises
+   - 3 x 20 x 100kg
+5. Standing calf raises
+   - 3 x 20 x 40kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
 ## 9.9.
 
 1. Squats
