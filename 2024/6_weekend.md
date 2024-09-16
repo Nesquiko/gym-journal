@@ -1,3 +1,16 @@
+## 14.9.
+
+1. Deadlift
+   - 3 x 6 x 100kg
+2. Dumbbell lateral raises
+   - 3 x 15 - 20 x 10kg
+3. Dumbbell reverse flies
+   - 3 x 20 x 7.5kg
+4. Alternating Dumbbell lateral raise
+   - working sets: 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 7.5kg
+5. Stretching
+   - band hamstring and calf stretch: 2 x 30" per leg
+
 ## 8.9.
 
 1. Bench press
