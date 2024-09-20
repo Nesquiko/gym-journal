@@ -1,3 +1,15 @@
+## 20.9.
+
+1. Deadlift
+   - 3 x 2 x 120kg
+2. Hanging leg raises
+   - 3 x 10
+3. Medicine ball wall throws
+   - 3 x 10 per side x 4kg
+4. Suitcase hold
+   - too light
+   - 2 x 30" hold per side x 24kg
+
 ## 6.9.
 
 1. Deadlift
