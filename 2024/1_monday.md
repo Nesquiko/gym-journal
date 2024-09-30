@@ -1,3 +1,19 @@
+## 30.9.
+
+Felt weak, I think it is from slacking in the gym.
+
+1. Squats
+   - 3 x 1 x 120kg
+2. Hyperextensions
+   - 3 x 12 x 25kg
+3. Machine glute bridges
+   - 3 x 10 x 35kg
+4. Seated calf raises
+   - 3 x 15 x 40kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+
 ## 23.9.
 
 1. Squats
