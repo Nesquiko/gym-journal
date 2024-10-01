@@ -1,3 +1,19 @@
+## 1.10.
+
+1. Bench press
+   - 3 x 3 x 85k
+2. Incline dumbbell press
+   - 3 x 5 x 32.5kg
+3. Peck deck
+   - 3 x ~12 x 50kg
+4. Cable flies
+   - 3 x ~12 x 12kg
+5. Triceps extensions
+   - 3 x 12 x 24kg
+   - 2 x 15 x 16kg with rope
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 10.9.
 
 1. Pullups
