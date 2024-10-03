@@ -1,3 +1,19 @@
+## 3.10.
+
+1. Front squats
+   - 3 x 5 x 80kg
+2. Hanging leg raises
+   - 3 x 12
+3. Mediceball side throws
+   - 3 x 10 per side x 6kg
+4. Crunch
+   - 3 x 12 x 10kg
+5. Suitcase hold
+   - 3 x 30" per side x 28kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - abs stretch: 3 x 15"
+
 ## 26.9.
 
 1. Bench press
