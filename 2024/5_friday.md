@@ -1,3 +1,21 @@
+## 4.10.
+
+Trying new gym for a month, at least
+
+1. Deadlift
+   - 3 x 2 x 120kg
+2. Lat pulldowns
+   - 3 x 8 + 2 partials x 61kg
+3. Straight arm pushdowns
+   - 3 x ~12 x 36kg
+4. Dumbbell biceps curls
+   - 3 x 10 per arm x 12.5kg
+5. Incline biceps curls
+   - 3 x 12 - 15 per arm x 10kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+
 ## 20.9.
 
 1. Deadlift
