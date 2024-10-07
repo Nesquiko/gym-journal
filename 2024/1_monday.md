@@ -1,3 +1,21 @@
+## 7.10.
+
+1. Squats
+   - 3 x 2 x 120kg
+2. Leg extensions
+   - 3 x ~12 x 71kg
+3. Leg curls
+   - 3 x ~12 x 41kg
+4. Hyperextensions
+   - 3 x 12 x 25kg
+5. Seated leg raises
+   - 3 x 12 - 15 x 50kg
+   - 3 x 15 x 25kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - leg over leg glute stretch: 2 x 30" per leg
+
 ## 30.9.
 
 Felt weak, I think it is from slacking in the gym.
