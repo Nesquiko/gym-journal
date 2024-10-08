@@ -1,7 +1,27 @@
+## 8.10.
+
+1. Bench press
+   - 3 x 3 x 85kg
+2. Incline dumbbell press
+   - Different bench, more steeper angle
+   - 3 x 5 x 30kg
+3. Cable flies
+   - 3 x ~10 x 36kg
+4. Peck deck
+   - Peck dec with greater stretch at the bottom
+   - 3 x ~8 x 41kg
+5. Triceps extensions with rope
+   - 3 x ~10 x 36kg
+6. Dumbbell french press
+   - 3 x ~10 x 12.5kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 1.10.
 
 1. Bench press
-   - 3 x 3 x 85k
+   - 3 x 3 x 85kg
 2. Incline dumbbell press
    - 3 x 5 x 32.5kg
 3. Peck deck
