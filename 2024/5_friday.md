@@ -1,3 +1,18 @@
+## 11.10.
+
+1. Deadlift
+   - 3 x 3 x 120kg
+2. One arm dumbbell rows
+   - 3 x 8 per arm x 35kg
+3. Lat pulldowns
+   - 3 x 8 + 2 partials x 59kg
+4. Dumbbell biceps curls
+   - 3 x ~10 per arm x 12.5kg
+5. Stretching
+   - band hamstring stretch: 2 x 30" per leg
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 15" per arm
+
 ## 4.10.
 
 Trying new gym for a month, at least
