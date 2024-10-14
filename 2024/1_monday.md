@@ -1,3 +1,14 @@
+## 14.10.
+
+1. Squats
+   - 2 x 3 x 120kg, 2 x 120kg
+2. Leg extensions
+   - 3 x ~10 x 91kg
+3. Seated leg curls
+   - 3 x ~10 x 50kg
+4. Calf machine extensions
+   - 3 x 12 - 15 x 100kg
+
 ## 7.10.
 
 1. Squats
