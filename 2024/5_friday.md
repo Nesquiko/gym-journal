@@ -1,3 +1,19 @@
+## 18.10.
+
+1. Deadlift
+   - 3 x 3 x 120kg
+2. Machine one arm seated rows
+   - 3 x ~12 per arm x 35kg
+3. Machine one arm low rows
+   - 3 x ~12 per arm x 30kg
+4. Cable bicep curls
+   - 3 x ~10 x 32kg
+5. Machine preacher one arm curls
+   - 3 x ~8 per arm x 9kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 30" per arm
+
 ## 11.10.
 
 1. Deadlift
