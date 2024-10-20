@@ -1,6 +1,21 @@
 ## 14.10.
 
 1. Squats
+   - 3 x 3 x 120kg
+   - 2 x 10 x 100kg
+2. Leg extensions
+   - 3 x ~12 x 91kg
+3. Calf machine extensions
+   - 3 x 15 x 91kg
+4. Seated leg curls
+   - 3 x ~12 x 50kg
+5. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - roof: 3 x 30"
+
+## 14.10.
+
+1. Squats
    - 2 x 3 x 120kg, 2 x 120kg
 2. Leg extensions
    - 3 x ~10 x 91kg
