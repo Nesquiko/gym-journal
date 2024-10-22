@@ -1,3 +1,10 @@
+## 22.10.
+
+Only bench today, because the gym opened late
+
+1. Bench press
+   - 5 x 3 x 85kg
+
 ## 15.10.
 
 1. Bench press
