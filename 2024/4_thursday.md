@@ -1,3 +1,19 @@
+## 24.10.
+
+1. Front squats
+   - 3 x 4 x 90kg
+2. Hanging leg raises
+   - 3 x 12
+3. Crunch
+   - 3 x 12 x 15kg
+4. Cable side rotations
+   - 3 x 12 per side x 18kg
+5. Ab wheel
+   - 3 x 12
+6. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - abs stretch: 3 x 30"
+
 ## 17.10.
 
 1. Front squats
