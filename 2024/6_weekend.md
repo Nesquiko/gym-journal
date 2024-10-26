@@ -1,3 +1,19 @@
+## 26.10.
+
+1. Deadlift
+   - 5 x 4 x 120kg
+2. Lat pulldowns
+   - 3 x ~10 per arm x 54kg
+3. One arm straight arm pulldowns
+   - 3 x ~12 x 18kg
+4. Ez bar bicep curls
+   - 3 x ~12 x 25kg
+5. Incline biceps curls
+   - 3 x 10 per arm x 12.5kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 30" per arm
+
 ## 14.9.
 
 1. Deadlift
