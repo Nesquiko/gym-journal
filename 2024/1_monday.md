@@ -1,3 +1,19 @@
+## 28.10.
+
+1. Squats
+   - 3 x 3 x 120kg
+   - 2 x 10 x 100kg
+2. Walking lunges
+   - 3 x 15 per leg x 40kg
+3. Bulgarian split squats
+   - 3 x 10 per leg x 20kg
+4. Leg extensions
+   - 3 x (10 with one leg, 10 with other, 10 both) x (20 + 50, 25 + 60, 30 + 65)
+5. Calf machine extensions
+   - 3 x 15 x 100kg
+6. Standing calf raises
+   - 3 x 12 x 50, 60, 70
+
 ## 14.10.
 
 1. Squats
