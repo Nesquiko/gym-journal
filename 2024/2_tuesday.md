@@ -1,3 +1,18 @@
+## 29.10.
+
+1. Bench press
+   - Lets try 87.5kg for 3 next week
+   - 4 x 85kg, 3 x 85kg
+   - 2 x 8 x 70kg
+2. Incline dumbbell press
+   - 3 x 5 x 30kg
+3. Machine chest press
+   - 3 x ~8 x 25kg each side
+4. Peck dec
+   - 3 x ~10 x 42kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 22.10.
 
 Only bench today, because the gym opened late
