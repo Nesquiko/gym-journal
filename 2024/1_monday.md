@@ -1,3 +1,12 @@
+## 4.11.
+
+After swimming camp, so legs are destroyed, today only light
+
+1. Squats
+   - 2 x 2 x 120kg
+2. Stretching
+   - laying quads stretch: 2 x 30" per leg
+
 ## 28.10.
 
 1. Squats
