@@ -1,3 +1,17 @@
+## 5.11.
+
+1. Bench press
+   - Getting weaker... don't know why, maybe because I' after training camp, or that I'm losing weight
+   - 2 x 87.5kg, 2 x 85kg
+2. Incline dumbbell press
+   - 3 x 8 x 30kg
+3. Peck deck
+   - 3 x 8 x 50kg
+4. Cable flies
+   - 3 x 8 x 10kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 29.10.
 
 1. Bench press
@@ -10,8 +24,13 @@
    - 3 x ~8 x 25kg each side
 4. Peck dec
    - 3 x ~10 x 42kg
-5. Stretching
+5. Triceps extensions
+   - 3 x ~10 x 20kg
+6. Triceps kickbacks
+   - 3 x 12 x 7.5kg
+7. Stretching
    - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
 
 ## 22.10.
 
