@@ -1,3 +1,23 @@
+## 7.11.
+
+Light one before competition
+
+1. Deadlift
+   - 1 x 130kg
+2. Pullups
+   - 3 x 8
+3. Seated neutral rows
+   - 3 x 8 x 55kg
+4. Dumbbell bicep curls
+   - 3 x ~5 per arm x 16kg
+5. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - laying hamstring stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - laying quads stretch: 2 x 30" per leg
+
 ## 24.10.
 
 1. Front squats
