@@ -1,3 +1,17 @@
+## 11.11.
+
+1. Squats
+   - With 67kg, this is the most I can get from my body.
+   - 4 x 3 x 120kg
+   - 1 x 6 x 100kg
+2. Walking lunges
+   - 3 x 10 per leg x 40kg
+3. Seated calf raises
+   - 3 x 12 x 50kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+
 ## 4.11.
 
 After swimming camp, so legs are destroyed, today only light
