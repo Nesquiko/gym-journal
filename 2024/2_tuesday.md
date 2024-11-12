@@ -1,3 +1,26 @@
+## 12.11.
+
+Yeah, I'm weak... At 67kg 90kg on bench is my max, so after this week, back to bulk.
+Today was more hypertrophy than strength.
+
+1. Bench press
+   - 2 x 85kg
+2. Incline dumbbell press
+   - 3 x 8 x 27.5kg
+3. Peck deck
+   - 3 x ~8 x 50kg
+4. Machine incline press
+   - 3 x ~8 x 50kg
+5. Dips
+   - 2 x ~6
+6. Triceps extensions with rope
+   - 3 x ~12 x 20kg
+7. Dumbbell french press
+   - 3 x ~10 x 10kg
+8. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 5.11.
 
 1. Bench press
