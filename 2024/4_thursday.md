@@ -1,3 +1,22 @@
+## 14.11.
+
+Felt like shit today, weak, not motivated...
+
+1. Deadlift
+   - 2 x 2 x 120kg
+2. Pullups
+   - 3 x 8
+3. Straight arm pushdowns
+   - 3 x ~10 x 20kg
+4. Ez bar curls
+   - 3 x ~10 x 10kg per side
+5. Hammer curls
+   - 3 x 12 x 12.5kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - bicep stretch: 3 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 7.11.
 
 Light one before competition
