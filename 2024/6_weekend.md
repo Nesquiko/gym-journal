@@ -1,3 +1,25 @@
+## 17.11.
+
+If I train legs on weekend, I don't need to train them monday morning (genius,
+I know...). Also cut ended, bulk time.
+
+0. Glue activations
+   - 90 - 90 - 90
+   - One leg glute bridges
+1. Squats
+   - 3 x 3 x 120kg
+   - 2 x 8 x 100kg
+2. Walking lunges
+   - 3 x 12 per leg x 40kg
+3. Leg extensions
+   - 3 x 12 - 15 x 80kg
+4. Leg press calf raises
+   - 3 x 15 x 130kg
+   - 3 x 15 x 80kg
+5. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+
 ## 26.10.
 
 1. Deadlift
