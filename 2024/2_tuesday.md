@@ -1,3 +1,21 @@
+## 19.11.
+
+1. Bench press
+   - 2 x 4 x 80kg, 1 x 3 x 80kg
+2. Incline dumbbell press
+   - 3 x 6 x 30kg
+3. Cable flies
+   - 3 x ~8 x 14kg
+4. Peck deck
+   - 3 x ~8 x 40kg
+5. Triceps extensions
+   - 3 x ~12 x 25kg
+6. Overhead triceps extensions
+   - 3 x ~12 x 15kg
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 12.11.
 
 Yeah, I'm weak... At 67kg 90kg on bench is my max, so after this week, back to bulk.
