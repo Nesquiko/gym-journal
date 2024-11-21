@@ -1,3 +1,22 @@
+## 21.11.
+
+I pulled something in my lower back at the last rep of deadlifts...
+
+1. Deadlift
+   - 5 x 2 x 120kg
+2. Pullups
+   - 3 x 8
+3. Lat pulldowns
+   - 3 x 8 x 65kg
+4. Straight arm pushdowns
+   - 3 x ~8 x 25kg
+5. Ez bar curls
+   - 2 x ~10 x 10kg per side
+6. Dumbbell bicep curls
+   - 3 x 5 per arm x 16kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 14.11.
 
 Felt like shit today, weak, not motivated...
