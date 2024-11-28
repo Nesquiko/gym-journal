@@ -1,3 +1,20 @@
+## 28.11.
+
+Last week I pulled something in my lower back and then got sick during weekend.
+So today was light.
+
+1. Squats
+   - 2 x 3 x 100kg
+2. Deadlift
+   - 2 x 3 x 100kg
+3. Bench press
+   - 2 x 3 x 70kg
+4. Neutral grip pulldowns
+   - 2 x 10 x 55kg
+5. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+
 ## 21.11.
 
 I pulled something in my lower back at the last rep of deadlifts...
