@@ -1,3 +1,16 @@
+## 5.12.
+
+I feel like getting sick, again...
+
+2. Deadlift
+   - 4 x 100kg
+3. Pullups
+   - 3 x 8
+4. Straight arm pushdowns
+   - 3 x 10 x 25kg
+5. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 28.11.
 
 Last week I pulled something in my lower back and then got sick during weekend.
