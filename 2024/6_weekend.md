@@ -1,3 +1,23 @@
+## 8.12.
+
+0. Glue activations
+   - Rocking on one leg hamstring stretch
+   - 90 - 90 - 90
+   - One leg glute bridges
+1. Squats
+   - 4 x 8 x 100kg
+2. Hack squats
+   - 3 x 10 x 60kg
+3. Walking lunges
+   - 3 x 24 per leg x 40kg
+4. Seated calf raises
+   - 3 x 15 x 40kg
+5. Leg press calf raises
+   - 3 x 20 x 100kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+
 ## 1.12.
 
 After a week of illness, weak...
