@@ -1,3 +1,22 @@
+## 12.12
+
+1. Deadlift
+   - 3 x 8 x 100kg
+2. Pullups
+   - 3 x 10
+3. One arm dumbbell rows
+   - 3 x 8 per arm x 35kg
+4. Straight arm pushdowns
+   - 3 x ~12 x 25kg
+5. Ez bar curls
+   - 2 x ~12 x 10kg per side
+6. Incline dumbbell bicep curls
+   - 3 x ~10 per arm x 12.5kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 30" per arm
+
 ## 5.12.
 
 I feel like getting sick, again...
