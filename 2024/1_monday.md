@@ -1,3 +1,22 @@
+## 16.12.
+
+0. Activations
+   - one leg frog
+   - Rocking on one leg hamstring stretch
+   - 90 - 90 - 90
+   - One leg glute bridges
+1. Squats
+   - 4 x 5 x 110kg
+2. Hack squats
+   - 3 x 8 x 80kg
+3. Standing calf raises
+   - 3 x 15 x 80kg
+4. Leg press calf raises
+   - 3 x 16 x 100kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 11.11.
 
 1. Squats
