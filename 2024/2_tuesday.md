@@ -1,3 +1,21 @@
+## 17.12.
+
+1. Bench press
+   - 3 x 5 x 82.5kg
+2. Incline dumbbell press
+   - 3 x 8 x 30kg
+3. Cable flies
+   - 3 x ~10 x 16kg
+4. Machine incline chest press
+   - 3 x ~10 x 60kg
+5. Triceps extensions
+   - 3 x ~10 x 30kg
+6. Dumbbell french press
+   - 3 x ~10 x 12.5kg in each hand
+7. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 10.12.
 
 1. Bench press
