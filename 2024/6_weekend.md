@@ -1,3 +1,15 @@
+## 28.12.
+
+0. Glue activations
+   - 90 - 90 - 90
+   - One leg glute bridges
+1. Squats
+   - 3 x 5 x 110kg
+2. Back lunges
+   - 3 x 4 per leg x 30kg
+3. Machine calf extensions
+   - 4 x 15 x 100kg
+
 ## 8.12.
 
 0. Glue activations
