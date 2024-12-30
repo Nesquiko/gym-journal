@@ -1,3 +1,19 @@
+## 31.12.
+
+1. Bench press
+   - 3 x 5 x 82.5kg
+2. Incline dumbbell press
+   - 3 x 6 - 10 x 30kg
+3. Peck dec
+   - 3 x ~10 x 50kg
+4. Triceps extensions
+   - 3 x ~10 x 30kg
+5. Dumbbell french press
+   - 3 x ~10 x 12.5kg in each hand
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 17.12.
 
 1. Bench press
