@@ -1,3 +1,19 @@
+## 9.1.
+
+Skipped biceps today, I have pinching pain in my right elbow.
+
+1. Deadlift
+   - 3 x 3 x 120kg
+2. Pullups
+   - 3 x 10
+3. One arm dumbbell rows
+   - 3 x 10 per arm x 38kg
+4. Straight arm pushdowns with rope
+   - 3 x 12 x 25kg
+5. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 2.1.
 
 1. Deadlift
