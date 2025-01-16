@@ -1,3 +1,23 @@
+## 16.1.
+
+Going on saturday to gym, moved today's back on saturday.
+
+1. Deadlift
+   - 4 x 3 x 120kg
+2. Bench press
+   - This week's tuesday I thought that I couldn't lift 82.5kg was because
+     on monday I did bring sally up/down challenge, but no, I just got weaker on bench
+   - 3 x 3 x 80kg
+3. Hanging leg raises
+   - 3 x 10
+4. Mediceball side throws
+   - 3 x 10 per side x 6kg
+5. Crunch
+   - 3 x 15
+6. Stretching
+   - leg over leg glute stretch: 2 x 30" per leg
+   - laying hamstring stretch: 2 x 30" per leg
+
 ## 9.1.
 
 Skipped biceps today, I have pinching pain in my right elbow.
