@@ -1,3 +1,22 @@
+## 18.1.
+
+1. Pullups
+   - 3 x 12
+2. One arm dumbbell rows
+   - 3 x 8 per arm x 37.5kg
+3. Neutral grip pulldowns
+   - 3 x 12 x 65kg
+4. Straight arm pushdowns
+   - 3 x 12 x 30kg
+5. Dumbbell bicep curls
+   - 3 x ~10 per arm x 12.5kg
+6. Incline dumbbell bicep curls
+   - 3 x ~12 per arm x 10kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 30" per arm
+
 ## 12.1.
 
 0. Activations
