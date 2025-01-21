@@ -1,3 +1,18 @@
+## 21.1.
+
+1. Bench press
+   - 5 x 4 x 80kg
+2. Incline dumbbell press
+   - 3 x 8 x 30kg
+3. Cable flies
+   - 3 x 8 x 16kg
+4. Dumbbell lateral raises
+   - 3 x 10 x 12.5kg
+5. Overhead press
+   - 3 x 10 x 30kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 14.1.
 
 Yesterday I did Bring Sally up/down challenge, so my triceps and pecs were
