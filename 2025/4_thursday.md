@@ -1,3 +1,20 @@
+## 23.1.
+
+1. Deadlift
+   - 3 x 4 x 120kg
+2. Pullups
+   - 3 x 10
+3. Seated rows
+   - 3 x 8 x 65kg
+4. Ez bar bicep curls
+   - 3 x ~8 x 12.5kg per side
+5. Hammer curls
+   - 3 x ~10 per arm x 14kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 30" per arm
+
 ## 16.1.
 
 Going on saturday to gym, moved today's back on saturday.
