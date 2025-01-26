@@ -1,3 +1,24 @@
+## 25.1.
+
+0. Activations
+   - one leg frog
+   - 90 - 90 - 90
+   - One leg glute bridges
+1. Squats
+   - 3 x 4 x 120kg
+2. Hip thrusts
+   - 3 x 12 x 100kg
+3. Leg extensions
+   - 3 x ~10 x 50kg
+4. Walking lunges
+   - 3 x 10 per leg x 15kg
+5. Leg press calf raises
+   - 3 x 16 x 150kg
+   - 2 x 18 x 100kg
+6. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+
 ## 19.1.
 
 0. Activations
