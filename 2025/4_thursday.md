@@ -1,3 +1,20 @@
+## 30.1.
+
+1. Deadlift
+   - 5 x 4 x 120kg
+2. Pullups
+   - 3 x 10
+3. Neutral grip lat pulldowns
+   - 3 x 8 x 65kg
+4. Hammer curls
+   - 3 x ~10 per arm x 14kg
+5. Overhand ez bar bicep curls
+   - 3 x ~10 x 10kg per side
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 30" per arm
+
 ## 23.1.
 
 1. Deadlift
