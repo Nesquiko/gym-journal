@@ -1,3 +1,17 @@
+## 2.2.
+
+0. Activations
+   - one leg frog
+   - 90 - 90 - 90
+   - One leg glute bridges
+1. Squats
+   - 5 x 4 x 120kg
+2. Bench press
+   - 5 x 5 x 82.5kg
+3. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 25.1.
 
 0. Activations
