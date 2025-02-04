@@ -1,3 +1,19 @@
+## 4.2.
+
+1. Explosive box squats
+   - 3 x 8 x 60kg
+2. Explosive squat jumps with dumbbells
+   - 3 x 6 x 8kg in each hand
+3. Jumps on box
+   - 3 x 8
+4. Mediceball side throws
+   - 3 x 8 per side x 6kg
+5. Standing calf raises
+   - 5 x 15 x 90kg
+   - 3 x 20 x 40kg
+6. Stretching
+   - calf stretch against wall: 3 x 15" per calf
+
 ## 28.1.
 
 1. Bench press
