@@ -1,3 +1,13 @@
+## 8.2.
+
+1. Squats
+   - 4 x 5 x 120kg
+2. Bench press
+   - 4 x 6 x 82.5kg
+3. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 2.2.
 
 0. Activations
