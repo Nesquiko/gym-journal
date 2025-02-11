@@ -1,3 +1,22 @@
+## 11.2.
+
+0. Activations
+   - one leg frog
+   - Rocking on one leg hamstring stretch
+   - 90 - 90 - 90
+1. Deadlift
+   - 5 x 5 x 120kg
+2. Overhead press
+   - 5 x 5 x 50kg
+3. Pullups
+   - 5 x 10
+4. Dumbbell lateral raises
+   - 5 x 10 + 5 partials x 12.5kg
+5. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - leg over leg glute stretch: 2 x 30" per leg
+   - band hamstring stretch: 2 x 30" per leg
+
 ## 4.2.
 
 1. Explosive box squats
