@@ -1,3 +1,16 @@
+## 13.2.
+
+1. Explosive box squats
+   - 5 x 8 x 60kg
+2. Explosive squat jumps with dumbbells
+   - 5 x 6 x 8kg in each hand
+3. Jumps on box
+   - 5 x 8
+4. Mediceball side throws
+   - 5 x 10 per side x 6kg
+5. Seated calf raises
+   - 3 x 8 x 50kg
+
 ## 30.1.
 
 0. Activations
