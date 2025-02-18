@@ -1,3 +1,20 @@
+## 18.2.
+
+0. Activations
+   - one leg frog
+   - Rocking on one leg hamstring stretch
+   - 90 - 90 - 90
+1. Deadlift
+   - 5 x 3 x 130kg
+2. Overhead press
+   - 5 x 5 x 50kg
+3. Pullups
+   - 5 x 10
+4. Dumbbell lateral raises
+   - 5 x 8 + 2 partials x 15kg
+5. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 11.2.
 
 0. Activations
