@@ -1,3 +1,14 @@
+## 22.2.
+
+1. Bench press
+   - 5 x 6 x 82.5kg
+2. Incline dumbbell bench press
+   - 3 x 8 x 30kg
+3. Cable flies
+   - 3 x 12 x 23kg
+4. Triceps extensions
+   - 3 x ~10 x 45kg
+
 ## 16.2.
 
 1. Squats
