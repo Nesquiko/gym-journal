@@ -1,3 +1,16 @@
+## 15.3.
+
+Was sick for 2 weeks, my legs are dead from today's workout.
+
+1. Squats
+   - 4 x 5 x 100kg
+2. Bench press
+   - 5 x 5 x 60kg
+3. Leg press calf raises
+   - 5 x 10 x 100kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
 ## 22.2.
 
 1. Bench press
