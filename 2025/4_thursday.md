@@ -1,3 +1,16 @@
+## 20.3.
+
+1. Explosive box squats
+   - 5 x 5 x 60kg
+2. Explosive squat jumps with dumbbells
+   - 5 x 5 x 7kg in each hand
+3. Hanging leg raises
+   - 5 x 10
+4. Mediceball side throws
+   - 5 x 8 per side x 6kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
 ## 20.2.
 
 1. Explosive box squats
