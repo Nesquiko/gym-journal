@@ -1,3 +1,18 @@
+## 30.3.
+
+This month is going great... I had a stomach issues during the week, so I'am
+weak...
+
+1. Squats
+   - 5 x 5 x 100kg
+2. Bench press
+   - 5 x 5 x 70kg
+3. Stead calf raises
+   - 3 x 15 x 50kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 3 x 30" per arm
+
 ## 23.3.
 
 1. Squats
