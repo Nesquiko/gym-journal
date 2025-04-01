@@ -1,3 +1,28 @@
+## 1.4.
+
+Going back to leg, pull, push split and explosiveness
+
+0. Activations
+   - one leg frog
+   - Rocking on one leg hamstring stretch
+   - 90 - 90 - 90
+1. Deadlift
+   - 5 x 5 x 100kg
+2. Pullups
+   - 5 x 8
+3. Seated rows
+   - 3 x 10 x 55kg
+4. One arm pushdowns
+   - 3 x 10 per arm x 12.5kg
+5. Dumbbell bicep curls
+   - 3 x 10 per arm x 12.5kg
+6. Cable curls
+   - 3 x ~12 x 16kg
+7. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 30" per arm
+
 ## 18.3.
 
 0. Activations
