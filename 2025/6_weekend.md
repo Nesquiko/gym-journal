@@ -1,3 +1,17 @@
+## 7.4.
+
+1. Squats
+   - 5 x 4 x 110kg
+2. Hack squats
+   - 5 x 12 x 40kg
+3. Machine hip thrusts
+   - 3 x 10 x 20kg
+4. Leg press calf raises
+   - 5 x 15 x 110kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch: 2 x 30" per leg
+
 ## 6.4.
 
 1. Squats
