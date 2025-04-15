@@ -1,3 +1,24 @@
+## 15.4.
+
+0. Activations
+   - one leg frog
+   - Rocking on one leg hamstring stretch
+   - 90 - 90 - 90
+1. Deadlift
+   - 5 x 4 x 110kg
+2. Pullups
+   - 5 x 8
+3. Neutral grip lat pulldowns
+   - 5 x 8 x 65kg
+4. Dumbbell bicep curls
+   - 3 x 8 per arm x 12.5kg
+5. Barbell bicep curls
+   - 3 x ~15 per arm x 20kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 30" per arm
+
 ## 8.4.
 
 0. Activations
