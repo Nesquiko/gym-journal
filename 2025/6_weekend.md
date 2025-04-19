@@ -1,4 +1,17 @@
-## 7.4.
+## 19.4.
+
+1. Squats
+   - 5 x 5 x 110kg
+2. Leg extensions
+   - 3 x (~8 x 100kg + ~6 x 80kg)
+3. Leg curls
+   - 3 x ~10 x 60kg
+4. Standing calf raises
+   - 5 x ~15 x 80kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
+## 13.4.
 
 1. Squats
    - 5 x 4 x 110kg
