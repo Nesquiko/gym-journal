@@ -1,3 +1,18 @@
+## 27.4.
+
+1. Squats
+   - 5 x 3 x 120kg
+2. Hack squats
+   - 3 x 10 x 80kg
+3. Leg curls
+   - 3 x ~12 x 100kg
+4. Standing calf raises
+   - 5 x ~16 x 80kg
+   - 2 x ~20 x 40kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch: 2 x 30" per leg
+
 ## 19.4.
 
 1. Squats
