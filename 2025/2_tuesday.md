@@ -1,3 +1,23 @@
+## 29.4.
+
+0. Activations
+   - one leg frog
+   - Rocking on one leg hamstring stretch
+   - 90 - 90 - 90
+1. Deadlift
+   - 5 x 3 x 120kg
+2. Pullups
+   - 5 x 10
+3. Lat pulldowns
+   - 3 x ~10 x 65kg
+4. Barbell bicep curls
+   - 3 x ~8 per arm x 30kg
+   - 3 x ~16 per arm x 20kg
+5. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 30" per arm
+
 ## 22.4.
 
 Lighter training, went after morning swim, so not much strength left in me.
