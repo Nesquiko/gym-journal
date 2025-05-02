@@ -1,3 +1,23 @@
+## 2.5.
+
+1. Bench press
+   - 5 x 4 x 82.5kg
+2. Incline dumbbell press
+   - 3 x 8 x 30kg in each hand
+3. Dumbbell lateral raises
+   - 3 x 10 + 2 partials x 12.5kg
+4. Cable flies
+   - 3 x ~12 x 14kg
+5. Cable lateral raise
+   - 3 x 8 per arm x 4kg
+6. Triceps extensions
+   - 3 x ~8 x 30kg
+7. Triceps overhead extensions
+   - 3 x ~10 x 15kg
+8. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stetch: 3 x 15" per arm
+
 ## 18.4.
 
 1. Bench press
