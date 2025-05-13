@@ -1,3 +1,16 @@
+## 9.5.
+
+1. Bench press
+   - 5 x 3 x 85kg
+2. Machine bench press
+   - 3 x ~12 x 15kg in each arm
+3. Machine flies
+   - 3 x ~10 x 5kg per arm
+4. Dumbbell lateral raises
+   - 3 x 8 + 2 partials x 14kg
+5. Machine lateral raises
+   - 3 x 2 x (5 with left - right paused + 5 with right - left paused) x 30kg
+
 ## 2.5.
 
 1. Bench press
