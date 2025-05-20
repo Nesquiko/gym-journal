@@ -1,3 +1,25 @@
+## 20.5.
+
+0. Activations
+   - one leg frog
+   - Rocking on one leg hamstring stretch
+   - 90 - 90 - 90
+1. Deadlift
+   - 3 x 3 x 120kg
+2. Pullups
+   - 5 x 8
+3. Hyperextensions
+   - 3 x 12 x 20kg
+4. Neutral grip lat pulldowns
+   - 3 x 8 x 67.5kg
+5. Barbell bicep curls
+   - 3 x ~8 x 30kg
+   - ~20 x 20kg
+6. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - bicep stretch: 3 x 30" per arm
+
 ## 13.5.
 
 Before competition, went lighter
