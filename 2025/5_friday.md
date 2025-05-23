@@ -1,3 +1,8 @@
+## 23.5.
+
+1. Bench press
+   - 5 x 3 x 80kg
+
 ## 9.5.
 
 1. Bench press
