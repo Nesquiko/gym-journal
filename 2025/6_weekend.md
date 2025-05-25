@@ -1,3 +1,17 @@
+## 25.5.
+
+1. Squats
+   - 2 x 2 x 120kg
+   - 15 x 60kg
+   - 2 x 15 x 60kg
+2. One leg extensions
+   - 3 x 8 per leg x 50kg
+3. One leg standing calf raises
+   - 5 x ~12 per leg x 20kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch: 2 x 30" per leg
+
 ## 3.5.
 
 1. Squats
