@@ -1,3 +1,12 @@
+## 30.5.
+
+This week and next will be hard, 2 swims a day, taking it easy today.
+
+1. Squats
+   - 3 x 3 x 120kg
+2. One leg standing calf raises
+   - 3 x ~8 per leg x 13kg
+
 ## 25.5.
 
 1. Squats
