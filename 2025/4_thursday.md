@@ -1,3 +1,16 @@
+## 12.6.
+
+Before competition, went lighter
+
+1. Explosive box squats
+   - 5 x 5 x 60kg
+2. Explosive squat jumps with dumbbells
+   - 5 x 5 x 8kg in each hand
+3. Jumps on box
+   - 5 x 5
+4. Mediceball side throws
+   - 5 x 10 per side x 6kg
+
 ## 23.4.
 
 Before competition, went lighter
