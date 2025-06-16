@@ -1,3 +1,21 @@
+## 15.6.
+
+1. Squats
+   - 4 x 3 x 120kg
+2. One leg standing calf raises
+   - 5 x ~8 per leg x 13kg
+3. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
+## 8.6.
+
+Lowering the intensity in gym, so that I can focus on swim.
+
+1. Squats
+   - 3 x 3 x 120kg
+2. One leg standing calf raises
+   - 3 x ~8 per leg x 13kg
+
 ## 30.5.
 
 This week and next will be hard, 2 swims a day, taking it easy today.
