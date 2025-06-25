@@ -1,3 +1,16 @@
+## 21.6.
+
+1. Hack squats
+   - 3 x 8 x 60kg
+2. Leg curls
+   - 3 x 10 x 40kg
+3. Leg extensions
+   - 3 x 10 per leg x 30kg
+4. One leg standing calf raises
+   - 3 x ~8 per leg x 13kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
 ## 15.6.
 
 1. Squats
