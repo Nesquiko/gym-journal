@@ -1,3 +1,16 @@
+## 24.6.
+
+1. Bench press
+   - 5 x 4 x 80kg
+2. Dumbbell incline bench press
+   - 3 x 8 x 30kg
+3. One arm cable flies
+   - 3 x ~10 x 14kg
+4. One arm triceps extensions
+   - 3 x 10 x 10kg
+5. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+
 ## 17.6.
 
 1. Bench press
@@ -10,6 +23,7 @@
    - 5 x 8 x 10kg
 5. Stretching
    - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
 
 ## 10.6.
 
