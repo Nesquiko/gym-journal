@@ -1,3 +1,16 @@
+## 26.6.
+
+1. Explosive box squats
+   - 5 x 5 x 70kg
+2. Explosive squat jumps with dumbbells
+   - 5 x 5 x 8kg in each hand
+3. Hanging leg raises
+   - 5 x 8
+4. Jumps on box
+   - 5 x 5
+5. Mediceball side throws
+   - 5 x 8 per side x 6kg
+
 ## 12.6.
 
 Before competition, went lighter
