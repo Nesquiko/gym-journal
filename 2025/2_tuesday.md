@@ -1,3 +1,24 @@
+## 29.7.
+
+First time after awhile in the gym, trying a full-body 3 times a week.
+
+1. Squats
+   - 3 x 3 x 100kg
+2. Pullups
+   - 3 x 8
+3. Leg extensions
+   - 3 x 8 x (80, 100, 120)kg
+4. Leg curls
+   - 3 x 8 x (50, 60, 70)kg
+5. Leg press calf raises
+   - 3 x 8 per leg x 40kg
+6. Bench press
+   - 3 x 3 x 70kg
+7. Dumbbell bicep curls
+   - 3 x 10 per arm x 12.5kg
+8. Stretching
+   - standing quads stretch: 2 x 30" per leg
+
 ## 24.6.
 
 1. Bench press
