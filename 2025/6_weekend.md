@@ -1,3 +1,31 @@
+## 10.8.
+
+Starting to feel better about the full body.
+
+1. Deadlift
+   - 2 x 3 x 120kg
+2. Squats
+   - 2 x 3 x 120kg
+3. Farmer's carry
+   - 2 x 30m x 40kg in each hand
+4. Standing calf raises
+   - 2 x 10 per leg x 40kg
+5. Bench press
+   - 2 x 5 x 70kg
+6. Pullups
+   - 2 x 8
+7. Incline dumbbell press
+   - 2 x 8 x 30kg
+8. Seated rows
+   - 2 x 10 x 65kg
+9. Overhead press
+   - 2 x 6 x 40kg
+10. Stretching
+    - standing quads stretch: 2 x 30" per leg
+    - chest stretch against wall: 3 x 30" per arm
+    - calf stretch against wall: 2 x 30" per calf
+    - elbow over head stretch: 2 x 30" per arm
+
 ## 21.6.
 
 1. Hack squats
