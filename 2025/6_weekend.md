@@ -1,3 +1,26 @@
+## 31.8.
+
+1. Squats
+   - 2 x 2 x 130kg
+2. Deadlift
+   - 2 x 2 x 130kg
+3. Farmer's carry
+   - 2 x 30m x 40kg in each hand
+4. Standing calf raises
+   - 2 x 12 per leg x 40kg
+5. Bench press
+   - 2 x 4 x 80kg
+6. Seated rows
+   - 2 x 8 x 67.5kg
+7. Overhead press
+   - 2 x 5 x 45kg
+8. Dumbbell bicep curls
+   - 2 x 8 per arm x 16kg
+9. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 10.8.
 
 Starting to feel better about the full body.
