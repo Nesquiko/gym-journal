@@ -1,3 +1,20 @@
+## 4.9.
+
+Strong alergy, feeling sick and weak from meds.
+
+1. Deadlift
+   - 2 x 2 x 130kg
+2. Squats
+   - 1 x 120kg
+3. Pullups
+   - 2 x 8
+4. Bench press
+   - 2 x 3 x 80kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 26.6.
 
 1. Explosive box squats
