@@ -1,3 +1,23 @@
+## 10.9.
+
+1. Deadlift
+   - 2 x 2 x 130kg
+2. Squats
+   - 2 x 1 x 130kg
+3. Seated calf raises
+   - 2 x 12 per leg x 25kg
+4. Bench press
+   - 2 x 5 x 80kg
+5. Lat pulldowns
+   - 2 x 8 x 67.5kg
+6. Dumbbell bicep curls
+   - 2 x 8 per arm x 16kg
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 3 x 30" per arm
+   - calf stretch against wall: 2 x 30" per calf
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 20.8.
 
 1. Deadlift
