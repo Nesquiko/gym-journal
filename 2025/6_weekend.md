@@ -1,22 +1,52 @@
+## 14.9.
+
+1. Squats
+   - 2 x 3 x 130kg
+2. Deadlift
+   - 2 x 1 x 130kg
+3. Pullups
+   - 2 x 10
+4. Leg extensions
+   - 2 x 10 per leg x 70kg
+5. Seated calf raises
+   - 2 x 10 per leg x 30kg
+6. Farmer's carry
+   - 2 x 30m x 40kg in each hand
+7. Bench press
+   - 2 x 3 x 85kg
+8. Close grip lat pulldowns
+   - 2 x 8 x 67.5kg
+9. Incline dumbbell press
+   - 2 x 6 x 32kg
+10. Dumbbell lateral raises
+    - 3 x 12 x 12.5kg
+11. Dumbbell bicep curls
+    - 2 x 9 per arm x 16kg
+12. Overhead press
+    - 2 x 6 x 45kg
+13. Stretching
+    - standing quads stretch: 2 x 30" per leg
+    - chest stretch against wall: 3 x 30" per arm
+    - calf stretch against wall: 2 x 30" per calf
+    - elbow over head stretch: 2 x 30" per arm
+
 ## 31.8.
 
 1. Squats
    - 2 x 2 x 130kg
 2. Deadlift
    - 2 x 2 x 130kg
-3. Farmer's carry
-   - 2 x 30m x 40kg in each hand
-4. Standing calf raises
+3. Standing calf raises
    - 2 x 12 per leg x 40kg
-5. Bench press
+4. Bench press
    - 2 x 4 x 80kg
-6. Seated rows
+5. Seated rows
    - 2 x 8 x 67.5kg
-7. Overhead press
+6. Overhead press
    - 2 x 5 x 45kg
-8. Dumbbell bicep curls
+7. Dumbbell bicep curls
    - 2 x 8 per arm x 16kg
-9. Stretching
+8. Stretching
    - standing quads stretch: 2 x 30" per leg
    - chest stretch against wall: 3 x 30" per arm
    - elbow over head stretch: 2 x 30" per arm
