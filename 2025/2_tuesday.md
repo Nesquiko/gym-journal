@@ -1,3 +1,31 @@
+## 16.9.
+
+1. Deadlift
+   - 2 x 3 x 130kg
+2. Squats
+   - 2 x 2 x 130kg
+3. Pullups
+   - 2 x 10
+4. Leg curls
+   - 2 x 10 per leg x 60kg
+5. Standing calf raises
+   - 2 x ~12 per leg x 30kg
+6. Bench press
+   - 2 x 3 x 85kg
+7. Neutral grip lat pulldowns
+   - 2 x 8 x 67.5kg
+8. Dumbbell lateral raises
+   - 3 x 12 x 12.5kg
+9. Dumbbell bicep curls
+   - 2 x 9 per arm x 16kg
+10. Overhead press
+    - 2 x 6 x 45kg
+11. Stretching
+    - standing quads stretch: 2 x 30" per leg
+    - chest stretch against wall: 3 x 30" per arm
+    - calf stretch against wall: 2 x 30" per calf
+    - elbow over head stretch: 2 x 30" per arm
+
 ## 29.7.
 
 First time after awhile in the gym, trying a full-body 3 times a week.
