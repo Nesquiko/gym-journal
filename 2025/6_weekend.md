@@ -1,3 +1,30 @@
+## 27.9.
+
+1. Pullups
+   - 2 x ~7 x 10kg
+2. Bench press
+   - 2 x 4 x 85kg
+3. One arm dumbbell rows
+   - 2 x 8 per arm x 40kg
+4. Incline dumbbell press
+   - 2 x 8 x 32kg
+5. Close grip lat pulldowns
+   - 2 x ~8 x 75kg
+6. Dumbbell lateral raises
+   - 2 x 12 x 12.5kg
+7. Dumbbell bicep curls
+   - 2 x 8 per arm x 18kg
+8. Overhead press
+   - 2 x 3 x 50kg
+9. Squats
+   - 2 x 130kg
+10. Deadlift
+    - 1 x 130kg
+11. Stretching
+    - standing quads stretch: 2 x 30" per leg
+    - chest stretch against wall: 3 x 30" per arm
+    - elbow over head stretch: 2 x 30" per arm
+
 ## 20.9.
 
 1. Squats
