@@ -1,3 +1,28 @@
+## 1.10.
+
+2. Deadlift
+   - 2 x 3 x 132.5kg
+3. Squats
+   - 2 x 2 x 132.5kg
+4. Pullups
+   2 x 7 x 10kg
+5. Hyperextensions:
+   2 x 12 x 25kg
+6. Bench press
+   - 2 x 4 x 85kg
+7. Seated calf raises
+   - 2 x 8 per leg x 35kg
+8. One arm seated rows
+   - 2 x 8 per arm x 35kg
+9. Incline dumbbell press
+   - 2 x 8 x 32kg
+10. Dumbbell bicep curls
+    - 2 x 9 per arm x 18kg
+11. Stretching
+    - elbow over head stretch: 2 x 30" per arm
+    - straight arms behind head against wall stretch: 2 x 30"
+    - laying hamstring stretch: 2 x 30" per leg
+
 ## 24.9.
 
 1. Pullups
