@@ -1,3 +1,27 @@
+## 06.10.
+
+Having a deload week, I feel weak on things that I remember were "light".
+
+1. Squats
+   - 2 x 132.5kg
+   - 4 x 120kg
+2. Deadlift
+   - 2 x 1 x 120kg
+3. Pullups
+   - 2 x 8
+4. Hyperextensions:
+   2 x 12
+5. Bench press
+   - 1 x 85kg
+   - 2 x 10 x 60kg
+6. One arm seated rows
+   - 2 x 8 per arm x 25kg
+7. Seated calf raises
+   - 2 x 8 per leg x 20kg
+8. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 29.9.
 
 1. Squats
