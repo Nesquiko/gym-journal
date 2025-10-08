@@ -1,3 +1,24 @@
+## 8.10.
+
+Continuing with deload.
+
+1. Squats
+   - 4 x 100kg
+2. Deadlift
+   - 4 x 100kg
+3. Pullups
+   2 x 8
+4. Seated calf raises
+   - 2 x 8 per leg x 10kg
+5. One arm seated rows
+   - 2 x 8 per arm x 35kg
+6. Cable chest flies
+   - 2 x 8 x 10kg
+7. Stretching
+   - laying hamstring stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - laying hamstring stretch: 2 x 30" per leg
+
 ## 1.10.
 
 2. Deadlift
