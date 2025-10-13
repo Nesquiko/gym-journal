@@ -1,3 +1,29 @@
+## 13.10.
+
+The deload somewhat helped, but still not feeling strong as I used to
+
+1. Pullups
+   - 2 x 7 x 10kg
+2. One arm seated rows
+   - 2 x 8 per arm x 35kg
+3. Bench press
+   - 2 x 4 x 85kg
+4. Squats
+   - 2 x 2 x 130kg
+5. Deadlift
+   - 2 x 4 x 100kg
+6. Seated calf raises
+   - 2 x 8 per leg x 35kg
+7. Dumbbell bicep curls
+   - 2 x ~6 per arm x 20kg
+8. Incline dumbbell press
+   - 2 x 8 x 32kg
+9. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 3 x 30" per arm
+   - calf stretch against wall: 2 x 30" per calf
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 06.10.
 
 Having a deload week, I feel weak on things that I remember were "light".
