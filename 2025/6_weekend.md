@@ -1,3 +1,22 @@
+## 01.11.
+
+1. Squats
+   - 2 x 6 x 110kg
+2. Pullups
+   - 2 x 8 x 10kg
+3. Seated calf raises
+   - 2 x 8 per leg x 35kg
+4. Hex deadlift
+   - 2 x 6 x 110kg
+5. Bench press
+   - 2 x 5 x 85kg
+6. One arm seated rows
+   - 2 x 8 per arm x 35kg
+7. Incline dumbbell press
+   - 2 x 8 x 32kg
+8. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+
 ## 04.10.
 
 1. Bench press
