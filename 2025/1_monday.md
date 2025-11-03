@@ -1,3 +1,18 @@
+## 03.11.
+
+1. Squats
+   - 2 x 6 x 110kg
+2. Seated calf raises
+   - 2 x 9 per leg x 35kg
+3. Pullups
+   - 2 x 8 x 10kg
+4. Bench press
+   - 2 x 6 x 85kg
+5. Incline dumbbell press
+   - 2 x 8 x 32.5kg
+6. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+
 ## 13.10.
 
 The deload somewhat helped, but still not feeling strong as I used to
