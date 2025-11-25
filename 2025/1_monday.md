@@ -1,3 +1,16 @@
+## 24.11.
+
+1. Squats
+   - 2 x 8 x 110kg
+2. Deadlift
+   - 2 x 4 x 110kg
+3. Pullups
+   - 2 x 10 x 10kg
+4. Seated calf raises
+   - 2 x 10 per leg x 35kg
+5. Bench press
+   - 6 x 85kg
+
 ## 17.11.
 
 1. Squats
