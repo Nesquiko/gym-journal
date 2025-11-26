@@ -1,3 +1,22 @@
+## 26.11.
+
+1. Bench press
+   - 2 x 4 x 85kg
+2. Deadlift
+   - 2 x 8 x 110kg
+3. Pullups
+   - 2 x 10 x 10kg
+4. Incline dumbbell press
+   - 2 x 8 x 32.5kg
+5. One arm dumbbell rows
+   - 2 x 10 per arm x 40kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 3 x 30" per arm
+   - calf stretch against wall: 2 x 30" per calf
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 19.11.
 
 1. Deadlift
