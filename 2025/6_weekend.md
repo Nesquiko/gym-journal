@@ -1,3 +1,18 @@
+## 29.11.
+
+1. Explosive box squats
+   - 3 x 5 x 60kg
+2. Explosive squat jumps with dumbbells
+   - 3 x 5 x 8kg in each hand
+3. Jumps on box
+   - 3 x 5
+4. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 22.11.
 
 1. Explosive box squats
