@@ -1,3 +1,28 @@
+## 13.12.
+
+1. Explosive box squats
+   - 2 x 5 x 70kg
+2. Explosive squat jumps with dumbbells
+   - 2 x 5 x 10kg in each hand
+3. Jumps on box
+   - 2 x 5
+4. Mediceball side throws
+   - 2 x 8 per side x 6kg
+5. Bench press
+   - 2 x 7 x 80kg
+6. Explosive pullups
+   - 2 x 4
+7. Incline dumbbell press
+   - 2 x 9 x 32.5kg
+8. Dumbbell bicep curls
+   - 2 x 7 per arm x 18kg
+9. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 6.12.
 
 1. Explosive box squats
@@ -9,7 +34,7 @@
 4. Bench press
    - 2 x 6 x 80kg
 5. Mediceball side throws
-   - 5 x 8 per side x 6kg
+   - 2 x 8 per side x 6kg
 6. Incline dumbbell press
    - 2 x 9 x 32.5kg
 7. Stretching
