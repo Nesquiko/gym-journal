@@ -1,3 +1,12 @@
+## 20.12.
+
+1. Squats
+   - 6 x 120kg
+2. Deadlift
+   - 6 x 120kg
+3. Bench press
+   - 7 x 80kg
+
 ## 13.12.
 
 1. Explosive box squats
