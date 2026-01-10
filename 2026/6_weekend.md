@@ -1,3 +1,19 @@
+## 10.1.
+
+1. Box squats
+   - 3 x 4 x 120kg
+2. Hex explosive deadlifts
+   - 3 x 10 x 90kg
+3. Cleans from knees
+   - 3 x 6 x 50kg
+4. Incline chest press
+   - 3 x 8 x 20kg per hand
+5. Sprints with band
+   - Sprinting with a resistance band around waist
+   - 3 x 2 x 15m
+6. Low push all out sprint
+   - 3 x 10"
+
 ## 4.1.
 
 After beatiful end of 2025 in bed with fever, here I come 2026.
