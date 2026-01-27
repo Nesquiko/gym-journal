@@ -1,5 +1,24 @@
 ## 19.1.
 
+1. Pullups
+   - 2 x 10 x 10kg
+2. Squats
+   - 2 x 10 x 110kg
+3. Seated calf raises
+   - 2 x 10 per leg x 35kg
+4. Dips
+   - 2 x 8
+5. Overhead press
+   - 2 x 8 x 40kg
+6. Dumbbell bicep curls
+   - 2 x 10 per arm x 15kg
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
+## 19.1.
+
 1. Squats
    - 2 x 9 x 110kg
 2. Deadlift
