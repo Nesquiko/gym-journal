@@ -1,3 +1,16 @@
+## 31.1.
+
+1. Squat
+   - 2 x 10 x 110kg
+2. Deadlift
+   - 2 x 7 x 110kg
+3. Bulgarian split squats
+   - 2 x 8 per leg x 17.5kg in each hand
+4. Leg curls
+   - 2 x 8 x 55kg
+5. Seated calf raises
+   - 2 x 8 per leg x 35kg
+
 ## 17.12.
 
 1. Explosive box squats
