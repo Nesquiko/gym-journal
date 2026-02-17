@@ -1,3 +1,14 @@
+## 16.2.
+
+This week will be hard, going light in gym
+
+1. Squats
+   - 6 x 120kg
+2. Pullups
+   - 2 x 6 x 12.5kg
+3. Bench press
+   - 2 x 6 x 80kg
+
 ## 9.2.
 
 1. Squats
