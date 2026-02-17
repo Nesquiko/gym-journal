@@ -1,3 +1,24 @@
+## 9.2.
+
+1. Squats
+   - 2 x 6 x 120kg
+2. Pullups
+   - 2 x 6 x 12.5kg
+3. Dips
+   - 2 x 8
+4. Standing calf raises
+   - 2 x 10 per leg x 40kg
+5. Bench press
+   - 2 x 6 x 80kg
+6. Overhead press
+   - 2 x 8 x 40kg
+7. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 2.2.
 
 2. Squats
