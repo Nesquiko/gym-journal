@@ -1,3 +1,16 @@
+## 21.2.
+
+1. Explosive box squats
+   - 2 x 5 x 100kg
+2. Deadlift
+   - 2 x 6 x 120kg
+3. Seated calf raises
+   - 2 x 8 per leg x 35kg
+4. Overhead press
+   - 2 x 10 x 40kg
+5. Pullups
+   - 2 x 7 x 12.5kg
+
 ## 31.1.
 
 1. Squat
@@ -11,7 +24,7 @@
 5. Seated calf raises
    - 2 x 8 per leg x 35kg
 
-## 17.12.
+## 17.1.
 
 1. Explosive box squats
    - 2 x 5 x 50kg
