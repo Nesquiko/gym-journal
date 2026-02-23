@@ -1,3 +1,18 @@
+## 23.2.
+
+1. Squats
+   - 2 x 6 x 120kg
+2. Pullups
+   - 2 x 8 x 12.5kg
+3. Seated calf raises
+   - 2 x 9 per leg x 35kg
+4. Bench press
+   - 2 x 6 x 80kg
+5. Face pulls
+   - 2 x 8 x resistence band
+6. Stretching
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 16.2.
 
 This week will be hard, going light in gym
