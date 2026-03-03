@@ -1,3 +1,16 @@
+## 2.3.
+
+1. Squats
+   - 2 x 7 x 120kg
+2. Seated calf raises
+   - 2 x 9 per leg x 35kg
+3. Face pulls
+   - 2 x 12 x 14kg
+4. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+
 ## 23.2.
 
 1. Squats
