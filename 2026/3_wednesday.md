@@ -1,3 +1,25 @@
+## 11.3.
+
+1. Squat
+   - 2 x 7 x 120kg
+2. Pullups
+   - 2 x 6 x 15kg
+3. Seated calf raises
+   - 2 x 10 per leg x 35kg
+4. Bench press
+   - My left shoulder is complaining...
+   - 2 x 5 x 60kg
+5. Close grip lat pulldowns
+   - 2 x 10 x 65kg
+6. Triceps rope extensions
+   - 2 x 10 x 22.5kg
+7. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 18.2.
 
 This week will be hard in water, going light in gym
