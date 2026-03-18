@@ -1,3 +1,27 @@
+## 18.3.
+
+1. Squat
+   - 2 x 7 x 120kg
+2. Seated calf raises
+   - 2 x 10 per leg x 35kg
+3. Seated one arm rows
+   - 2 x 8 per arm x 30kg
+4. Dumbbell bench press
+   - My left shoulder is complaining...
+   - 2 x 10 x 20kg
+5. One arm lat pulldowns
+   - 2 x 10 per arm x 20kg
+6. Lateral raises
+   - 2 x 10 x 10kg
+7. Dumbbell bicep curls
+   - 2 x 10 per arm x 16kg
+8. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 11.3.
 
 1. Squat
