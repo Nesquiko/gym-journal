@@ -1,3 +1,26 @@
+## 15.4.
+
+1. Squat
+   - 1 x 130kg
+2. Deadlift
+   - 1 x 130kg
+3. Seated calf raises
+   - 2 x 6 per leg x 40kg
+4. Explosive pullups
+   - 2 x 5
+5. Cable chest flies
+   - 2 x 8 x 16kg
+6. One arm lat pulldowns
+   - 2 x 10 per arm x 26kg
+7. Dumbbell bench press
+   - 2 x 10 only right hand x 25kg
+8. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 8.4.
 
 1. Squat
