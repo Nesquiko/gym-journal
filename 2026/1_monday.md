@@ -1,3 +1,22 @@
+## 20.4.
+
+1. Squats
+   - 1 x 130kg
+2. One arm lat pulldowns
+   - 2 x 10 per arm x 26kg
+3. Belt squats
+   - 10 per leg x 140kg
+4. Cable chest flies
+   - 8 x 16kg
+5. Dumbbell bicep curls
+   - 2 x 8 per arm x 18kg
+6. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 13.4.
 
 1. Squats
