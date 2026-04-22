@@ -1,3 +1,22 @@
+## 22.4.
+
+1. Box squat
+   - 5 x 80kg
+2. Explosive squat jumps with dumbbells
+   - 2 x 5 x 8kg in each hand
+3. Dumbbell bench press
+   - 2 x 10 only right hand x 25kg
+4. One arm lat pulldowns
+   - 2 x 10 per arm x 26kg
+5. Cable chest flies
+   - 2 x 8 x 16kg
+6. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 15.4.
 
 1. Squat
