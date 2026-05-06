@@ -1,3 +1,24 @@
+## 6.5.
+
+1. Squat
+   - 9 x 120kg
+2. Pullups
+   - 2 x 6 x 15kg
+3. Seated calf raises
+   - 2 x 6 per leg x 40kg
+4. Dumbbell bench press
+   - 2 x 10 only right hand x 25kg
+5. Belt squats
+   - 10 per leg x 140kg
+6. Dumbbell bicep curls
+   - 2 x 8 per arm x 18kg
+7. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 22.4.
 
 1. Box squat
