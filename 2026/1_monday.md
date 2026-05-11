@@ -1,3 +1,22 @@
+## 11.5.
+
+1. Squats
+   - 2 x 9 x 120kg
+2. Pullups
+   - 2 x 6 x 15kg
+3. Seated calf raises
+   - 2 x 7 per leg x 40kg
+4. One arm lat pulldowns
+   - 2 x 6 per arm x 28kg
+5. Cable chest flies
+   - 2 x 6 x 18kg
+6. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 27.4.
 
 1. Squats
