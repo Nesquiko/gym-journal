@@ -1,3 +1,18 @@
+## 13.5.
+
+1. Deadlift
+   - 2 x 6 x 120kg
+2. Neutral grip lat pulldowns
+   - 2 x 8 x 65kg
+3. Dumbbell bench press
+   - 2 x 10 only right hand x 25kg
+4. Dumbbell bicep curls
+   - 2 x 8 per arm x 18kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 6.5.
 
 1. Squat
