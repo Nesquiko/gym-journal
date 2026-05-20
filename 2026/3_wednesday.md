@@ -1,3 +1,20 @@
+## 20.5.
+
+1. Deadlift
+   - 2 x 7 x 120kg
+2. Cable chest flies
+   - 2 x 8 x 20kg
+3. One arm lat pulldowns
+   - 2 x 10 per arm x 28kg
+4. Seated calf raises
+   - 2 x 8 per leg x 40kg
+5. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 13.5.
 
 1. Deadlift
