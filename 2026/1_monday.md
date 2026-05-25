@@ -1,3 +1,20 @@
+## 25.5.
+
+1. Squats
+   - 9 x 120kg
+2. Lat pulldowns
+   - 2 x 6 x 75kg
+3. Peck deck
+   - 2 x 8 x 40kg
+4. Seated calf raises
+   - 2 x 8 per leg x 40kg
+5. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 18.5.
 
 1. Squats
@@ -5,7 +22,7 @@
 2. Deadlift
    - 6 x 120kg
 3. Lat pulldowns
-   - 3 x 7 x 75kg
+   - 2 x 7 x 75kg
 4. Seated calf raises
    - 2 x 8 per leg x 40kg
 5. Cable chest flies
