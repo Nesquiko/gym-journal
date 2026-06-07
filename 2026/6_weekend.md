@@ -1,3 +1,20 @@
+## 6.6.
+
+1. Squats
+   - 2 x 3 x 130kg
+2. Explosive box squats
+   - 2 x 5 x 100kg
+3. Lat pulldowns
+   - 2 x 6 x 75kg
+4. Peck deck
+   - 2 x 8 x 50kg
+5. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 21.2.
 
 1. Explosive box squats
