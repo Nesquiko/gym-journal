@@ -1,3 +1,20 @@
+## 8.7
+
+1. Squats
+   - 2 x 8 x 100kg
+2. Pullups
+   - 2 x 10
+3. Bench press
+   - 2 x 8 x 60kg
+4. Neutral grip lat pulldowns
+   - 2 x 8 x 65kg
+5. Incline bench press
+   - 2 x 8 x 26kg
+6. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+
 ## 27.5.
 
 1. Deadlift
