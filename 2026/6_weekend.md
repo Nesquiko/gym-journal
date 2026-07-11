@@ -1,3 +1,28 @@
+## 11.7
+
+1. Squats
+   - 2 x 5 x 120kg
+2. Barbell rows
+   - 2 x 10 x 60kg
+3. Bench press
+   - 2 x 10 x 60kg
+4. Belt squats
+   - 2 x tempo 3/1/3 10 x 90kg
+5. Close grip lat pulldowns
+   - 2 x 8 x 65kg
+6. Incline bench press
+   - 2 x 10 x 25kg
+7. Dumbbell bicep curls
+   - 2 x 8 per arm x 16kg
+8. Triceps rope extensions
+   - 2 x 10 x 20kg
+9. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 6.6.
 
 1. Squats
