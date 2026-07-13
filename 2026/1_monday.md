@@ -1,3 +1,20 @@
+## 13.7
+
+1. Squats
+   - 3 x tempo 3/1/3 5 x 100kg
+2. Pullups
+   - 2 x 6 x 12.5
+3. Chest press
+   - 2 x 10 slow x 40kg
+4. Dumbbell bicep curls
+   - 2 x 7 per arm x 17.5kg
+5. Triceps rope extensions
+   - 2 x 10 x 20kg
+6. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+
 ## 6.7
 
 1. Squats
