@@ -1,3 +1,23 @@
+## 18.7
+
+1. Squats
+   - 2 x 5 x 120kg
+2. Barbell rows
+   - 2 x 10 x 60kg
+3. Seated calf raises
+   - 2 x 8 per leg x 35kg
+4. Leg extensions
+   - 2 x 8 x 90kg
+5. Close grip seated rows
+   - 2 x 8 x 65kg
+6. Peck deck
+   - 2 x 10 x 50kg
+7. Triceps rope extensions
+   - 2 x 10 x 24kg
+8. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 11.7
 
 1. Squats
