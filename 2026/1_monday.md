@@ -1,3 +1,26 @@
+## 20.7
+
+1. Squats
+   - 3 x tempo 3/1/3 6 x 100kg
+2. Seated calf raises
+   - 2 x 10 per leg x 35kg
+3. Leg extensions
+   - 2 x 15 x 100kg
+4. Neutral grip lat pulldowns
+   - 2 x 10 x 65kg
+5. Peck deck
+   - 2 x 10 x 50kg
+6. Dumbbell bicep curls
+   - 2 x 8 per arm x 17.5kg
+7. Dead bug with alternating legs
+   - 3 x 8 per leg x 12kg
+8. Stretching
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 13.7
 
 1. Squats
