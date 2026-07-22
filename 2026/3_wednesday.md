@@ -1,3 +1,19 @@
+## 22.7
+
+1. Pullups
+   - 2 x 8 x 12.5kg
+2. Deadlift
+   - starting with pullups wasn' a good idea, I couldn't lock lats, my back was rounding
+   - 3 x 120kg
+3. Front squats
+   - 2 x 8 x 60kg
+4. Seated rows
+   - 2 x 10 x 65kg
+5. Peck deck
+   - 2 x 8 x 55kg
+6. Face pulls
+   - 2 x 10 x 12.5kg
+
 ## 15.7
 
 1. Deadlift
