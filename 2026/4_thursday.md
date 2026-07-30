@@ -1,3 +1,16 @@
+## 30.7.
+
+1. Deadlift
+   - 2 x 5 x 120kg
+2. Peck deck
+   - 3 x 8 x 60kg
+3. Leg press calf raises
+   - 3 x ~20 x 140kg
+4. Triceps rope extensions
+   - 3 x 8 x 22kg
+5. Dumbbell lateral raises
+   - 3 x 10 x 10kg
+
 ## 5.3.
 
 1. Squat
