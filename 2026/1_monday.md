@@ -1,3 +1,28 @@
+## 10.8
+
+1. Squats
+   - 3 x 6 x 100kg
+2. Pullups
+   - 3 x 8 x 10kg
+3. Hack squats
+   - 2 x 10 x 50kg
+4. Seated rows
+   - 2 x ~10 x 55kg
+5. Standing calf raises
+   - 3 x ~20 x 40kg
+6. Narrow grip underhand biceps pulldowns
+   - 3 x 10 x 55kg
+7. Cable obliques swings
+   - 2 x 10 per side x 7.5kg
+8. Incline seated biceps curls
+   - 3 x 10, 7, 7 x 10kg
+9. Mediceneball side throws
+   - 2 x 8 per side x 6kg
+10. Stretching
+    - standing quads stretch: 2 x 30" per leg
+    - calf stretch against wall: 2 x 30" per calf
+    - straight arms behind head against wall stretch: 3 x 30"
+
 ## 20.7
 
 1. Squats
