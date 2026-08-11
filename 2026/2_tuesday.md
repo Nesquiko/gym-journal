@@ -1,3 +1,28 @@
+## 11.8.
+
+1. Deadlift
+   - 3 x 6 x 100kg
+2. Machine chest press
+   - 3 x ~10 x 60kg
+3. Machine hip thrusts
+   - 2 x 10 x 20kg
+4. Peck deck
+   - 3 x 10 x 30kg
+5. Standing one leg curls
+   - 2 x 10 per leg x 10kg
+6. Tricep extensions
+   - 3 x ~10 x 25kg
+7. Dumbbell lateral raises
+   - 3 x 10 x 10kg
+8. Handing leg raises
+   - 3 x 10
+9. Tricep kickbacks
+   - 2 x ~12 x 8kg
+10. Stretching
+    - leg over leg glute stretch: 2 x 30" per leg
+    - chest stretch against wall: 2 x 30" per arm
+    - band hamstring stretch: 2 x 30" per leg
+
 ## 7.7.
 
 1. Barbell rows
