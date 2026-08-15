@@ -1,3 +1,25 @@
+## 15.8.
+
+1. Deadlift
+   - 3 x 8 x 100kg
+2. Peck dec
+   - 3 x ~8 x 60kg
+3. Leg curls
+   - 3 x 10 x 50kg
+4. Dumbbell lateral raises
+   - 3 x 10 x 12kg
+5. Machine one leg glute presses
+   - 3 x 8 per leg x 28kg
+6. Tricep extensions
+   - 3 x ~8 x 25kg
+7. Cable obliques swings
+   - 3 x 10 per side x 8kg
+8. Stretching
+   - leg over leg glute stretch: 2 x 30" per leg
+   - chest stretch against wall: 2 x 30" per arm
+   - band hamstring stretch: 2 x 30" per leg
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 18.7
 
 1. Squats
