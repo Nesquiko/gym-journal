@@ -1,3 +1,22 @@
+## 18.8.
+
+1. Deadlift
+   - 2 x 5 x 120kg
+2. Peck deck
+   - 3 x ~8 x 60kg
+3. Leg curls
+   - 3 x 10 x 60kg
+4. Dumbbell lateral raises
+   - 3 x 10 x 12kg
+5. Hip thrusts
+   - 3 x 10 x 40kg
+6. Tricep extensions
+   - 3 x ~10 x 25kg
+7. Face pulls
+   - 3 x 12 x 14kg
+8. Dead bug with alternating legs
+   - 3 x 8 per leg x 10kg
+
 ## 11.8.
 
 1. Deadlift
