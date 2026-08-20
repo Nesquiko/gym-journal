@@ -1,3 +1,16 @@
+## 20.8.
+
+1. Squats
+   - 2 x 5 x 120kg
+2. Pullups
+   - 2 x 6 x 15kg
+3. Pendulum squats
+   - 3 x 10 x 20kg
+4. Neutral grip lat pulldowns
+   - 2 x 10 x 65kg
+5. Seated calf raises
+   - 2 x 10 per leg x 30kg
+
 ## 30.7.
 
 1. Deadlift
