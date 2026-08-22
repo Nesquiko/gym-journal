@@ -1,3 +1,18 @@
+## 21.8.
+
+1. Deadlift
+   - 2 x 5 x 100kg
+2. Machine chest press
+   - 3 x ~8 x 55, 60, 65kg
+3. Standing one leg curls
+   - 3 x 8 x 10kg
+4. Tricep extensions with rope
+   - 2 x ~10 x 22.5kg
+5. Dumbbell lateral raises
+   - 3 x 12 x 12.5kg
+6. Overhead triceps extensions with rope
+   - 2 x ~10 x 15kg
+
 ## 14.8
 
 1. Squats
