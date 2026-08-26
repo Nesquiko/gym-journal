@@ -1,3 +1,23 @@
+## 25.8
+
+1. Squats
+   - 2 x 7 tempo 3/3/3 x 100kg
+2. Pullups
+   - 2 x 7 x 15kg
+3. Leg extensions
+   - 3 x 10 slow x 100kg
+4. Narrow grip lat pulldowns
+   - 3 x 10 x 65kg
+5. Standing calf raises
+   - 3 x ~20 x 50kg
+6. Dumbbell bicep curls
+   - 3 x 8 per arm x 16kg
+7. Cable obliques swings
+   - 3 x 10 per side x 10kg
+8. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 18.8.
 
 1. Deadlift
