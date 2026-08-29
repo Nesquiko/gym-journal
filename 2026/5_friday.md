@@ -1,3 +1,22 @@
+## 28.8.
+
+1. Squats
+   - 3 x 1 x 120, 125, 130kg
+2. Bend over rows
+   - 5 x 5 x 70kg
+3. Belt squats
+   - 5 x 8 x 130kg
+4. One arm machine rows
+   - 5 x 10 per arm x 30kg
+5. Machine standing calf raises
+   - 3 x ~15 x 50kg
+6. Dumbbell bicep curls
+   - 3 x 6 per arm x 17.5kg
+7. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 21.8.
 
 1. Deadlift
