@@ -1,3 +1,21 @@
+## 30.8.
+
+1. Deadlift
+   - 3 x 5 x 120kg
+2. Peck dec
+   - 3 x ~6 x 60kg
+3. Kickbacks
+   - 3 x 8 x 50kg
+4. Dumbbell lateral raises
+   - 3 x ~13 x 12kg
+5. Leg curls
+   - 3 x ~8 x 37kg
+6. Tricep extensions
+   - 3 x ~10 x 25kg
+7. Stretching
+   - leg over leg glute stretch: 2 x 30" per leg
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 15.8.
 
 1. Deadlift
