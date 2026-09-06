@@ -1,3 +1,19 @@
+
+## 5.9.
+
+1. Squats
+   - 3 x 5 x 120kg
+2. Bend over rows
+   - 5 x 5 x 65kg
+3. Seated calf raises
+   - 3 x ~15 x 45kg
+4. Dumbbell bicep curls
+   - 2 x 8 x 16kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 30.8.
 
 1. Deadlift
