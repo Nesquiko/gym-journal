@@ -1,3 +1,12 @@
+## 6.9.
+
+1. Deadlift
+   - 5 x 5 x 100kg
+2. Peck dec
+   - 5 x 8 x 55kg
+3. Stretching
+   - leg over leg glute stretch: 2 x 30" per leg
+   - band hamstring stretch: 2 x 30" per leg
 
 ## 5.9.
 
