@@ -1,3 +1,20 @@
+## 16.9.
+
+1. Squats
+   - 5 x 5 x 100kg
+2. Lat pulldowns
+   - 5 x 6 x 75kg
+3. Seated calf raises
+   - 5 x 8 per leg x 20kg
+4. Cable obliques swings
+   - 5 x 8 per side x 8kg
+5. Dumbbell bicep curls
+   - 5 x 6 per arm x 16kg
+6. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - straight arms behind head against wall stretch: 3 x 30"
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 29.7
 
 1. Squats
