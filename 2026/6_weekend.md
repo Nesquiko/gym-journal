@@ -1,3 +1,18 @@
+## 20.9.
+
+1. Squats
+   - 1 x 120kg
+2. Leg extensions
+   - 5 x 12 x 100kg
+3. Lunges
+   - 3 x 10 per leg x 40kg
+4. Straight legs calf raises
+   - 4 x 12 x 45kg
+5. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 19.9.
 
 1. Deadlift
