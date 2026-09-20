@@ -1,3 +1,14 @@
+## 19.9.
+
+1. Deadlift
+   - 5 x 5 x 100kg
+2. Chest press
+   - 5 x 8 x 20kg per arm
+3. Seated leg curls
+   - 3 x 8 x 45kg
+4. Dead bug with alternating legs
+   - 3 x 8 per leg x 10kg
+
 ## 6.9.
 
 1. Deadlift
