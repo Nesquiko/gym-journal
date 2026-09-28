@@ -1,3 +1,16 @@
+## 25.9.
+
+1. Squats
+   - 5 x 5 x 110kg
+2. Leg extensions
+   - 5 x 12 x 100kg
+3. Seated calf raises
+   - 5 x 8 per leg x 30kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - calf stretch against wall: 2 x 30" per calf
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 28.8.
 
 1. Squats
