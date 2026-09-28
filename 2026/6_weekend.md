@@ -1,3 +1,15 @@
+## 27.9.
+
+1. Isometric squat push
+   - 3 x 3 x 5"
+2. Pin squats
+   - 3 x 5 x 150kg
+3. Dead bug with alternating legs
+   - 3 x 10 per leg x 10kg
+4. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+
 ## 20.9.
 
 1. Squats
