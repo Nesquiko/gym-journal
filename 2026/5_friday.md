@@ -1,3 +1,13 @@
+## 2.10.
+
+1. Squats
+   - 5 x 5 x 110kg
+2. Pullups
+   - 5 x 8 x 10kg
+3. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 25.9.
 
 1. Squats
