@@ -1,3 +1,14 @@
+## 5.10.
+
+1. Isometric squat push
+   - 3 x 3 x 5"
+2. Pin squats
+   - 5 x 5 x 160kg
+3. Seated calf raises
+   - 3 x 8 per leg x 30kg
+4. Pullups
+   - 3 x 8 x 10kg
+
 ## 17.8
 
 1. Squats
