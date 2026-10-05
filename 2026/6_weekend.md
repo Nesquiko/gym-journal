@@ -1,3 +1,12 @@
+## 3.10.
+
+Ending the cut, no energy in gym, 67.5kg reached
+
+1. Squats
+   - 1 x 120kg
+2. Chest press
+   - 5 x 8 x 20kg
+
 ## 27.9.
 
 1. Isometric squat push
