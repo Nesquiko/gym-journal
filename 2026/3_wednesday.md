@@ -1,3 +1,13 @@
+## 7.10.
+
+1. Squats
+   - 3 x 7 x 110kg
+2. Machine chest press
+   - 5 x 8 x 30kg per arm
+3. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 3 x 30" per arm
+
 ## 16.9.
 
 1. Squats
