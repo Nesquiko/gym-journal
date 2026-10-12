@@ -1,3 +1,14 @@
+## 12.10.
+
+1. Pullups
+   - 5 x 8 x 10kg
+2. Leg extensions
+   - 3 x 8 x 60kg
+3. Seated rows
+   - 3 x 8 x 60kg
+4. Dumbbell bicep curls
+   - 4 x 8 per arm x 15kg
+
 ## 5.10.
 
 1. Isometric squat push
