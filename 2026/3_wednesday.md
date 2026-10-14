@@ -1,3 +1,15 @@
+## 14.10.
+
+1. Squats
+   - 5 x 3 paused x 110kg
+2. Peck deck
+   - 5 x 8 x 15kg
+3. Leg press calf raises
+   - 3 x 12 x 90kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 2 x 30" per arm
+
 ## 7.10.
 
 1. Squats
