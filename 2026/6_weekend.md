@@ -1,3 +1,8 @@
+## 17.10.
+
+1. Squats
+   - 4 x 6 x 110kg
+
 ## 3.10.
 
 Ending the cut, no energy in gym, 67.5kg reached
