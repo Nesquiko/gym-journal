@@ -1,3 +1,16 @@
+## 16.10.
+
+1. Leg curls
+   - 3 x 10 x 50kg
+2. Machine calf extensions
+   - 3 x 12 per leg x 45kg
+3. Lat pulldowns
+   - 3 x 10 x 70kg
+4. Pushdowns
+   - 3 x 12 x 25kg
+5. Ez bar bicep curls
+   - 3 x 10 x 25kg
+
 ## 2.10.
 
 1. Squats
