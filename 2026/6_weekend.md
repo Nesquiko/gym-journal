@@ -1,3 +1,12 @@
+## 18.10.
+
+1. Deadlift
+   - 5 x 5 x 100kg
+2. Chest press
+   - 5 x 10 x 30kg per arm
+3. Stretching
+   - leg over leg glute stretch: 2 x 30" per leg
+
 ## 17.10.
 
 1. Squats
