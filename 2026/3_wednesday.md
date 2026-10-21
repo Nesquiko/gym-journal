@@ -1,3 +1,16 @@
+## 21.10.
+
+1. Isometric squat push
+   - 3 x 3 x 5"
+2. Pin squats
+   - 5 x 5 x 160kg
+3. Pullups
+   - 3 x 8 x 10kg
+4. Dead bug with alternating legs
+   - 3 x 8 per leg x 12.5kg
+5. Seated calf raises
+   - 3 x 16 x 40kg
+
 ## 14.10.
 
 1. Squats
