@@ -1,3 +1,13 @@
+## 4.11.
+
+1. Squats
+   - 3 x 3 x 110kg
+2. Barbell rows
+   - 3 x 8 x 60kg
+3. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+
 ## 21.10.
 
 1. Isometric squat push
