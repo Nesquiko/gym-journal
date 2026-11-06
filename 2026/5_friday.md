@@ -1,3 +1,12 @@
+## 6.11.
+
+1. Deadlift
+   - 3 x 3 x 110kg
+2. Machine calf extensions
+   - 3 x ~18 x 83kg
+3. Peck deck
+   - 3 x 10 x 34kg
+
 ## 16.10.
 
 1. Leg curls
