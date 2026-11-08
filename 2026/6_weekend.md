@@ -1,3 +1,18 @@
+## 7.11.
+
+1. Isometric squat push
+   - 3 x 3 x 5"
+2. Box squats
+   - 3 x 5 x 140kg
+3. Jumps on box
+   - 3 x 5
+4. Pullups
+   - 5 x 5 x 12.5kg
+5. Mediceball side throws
+   - 3 x 8 per side x 6kg
+6. Dead bug with alternating legs
+   - 2 x 8 per leg x 12kg
+
 ## 18.10.
 
 1. Deadlift
