@@ -1,3 +1,22 @@
+## 8.11.
+
+Stingy pain under my left knee, probably not fully restored from the diarrhea...
+
+1. Squats
+   - 2 x 8 x 100kg
+2. Leg extensions
+   - 3 x 16 - 18 x 64kg
+3. Seated calf raises
+   - 3 x 12 - 16 x 30kg
+4. Seated calf extensions
+   - 2 x ~16 x 45kg
+5. Machine hip thrusts
+   - 3 x 8 - 10 x 30kg
+6. Stretching
+   - laying quads stretch: 2 x 30" per leg
+   - leg over leg glute stretch: 2 x 30" per leg
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 7.11.
 
 1. Isometric squat push
