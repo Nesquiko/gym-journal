@@ -1,3 +1,19 @@
+## 9.11.
+
+1. Deadlift
+   - 3 x 1 x 120kg
+2. Chest press
+   - 3 x 8 x 30kg per arm
+3. Peck deck
+   - 3 x 8 x 54kg
+4. Lateral raises
+   - 3 x 10 x 10kg
+5. Stretching
+   - leg over leg glute stretch: 2 x 30" per leg
+   - chest stretch against wall: 3 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 12.10.
 
 1. Pullups
