@@ -1,3 +1,19 @@
+## 11.11.
+
+This split, with legs in between 2 swim days, is not ideal
+
+1. Squats
+   - 2 x 4 x 100kg
+2. Barbell rows
+   - 3 x 6 x 65kg
+3. Seated calf raises
+   - 3 x 16-18 x 30kg
+4. One arm machine rows
+   - 3 x 8 per arm x 30kg
+5. Stretching
+   - quads stretch: 2 x 30" per leg
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 4.11.
 
 1. Squats
