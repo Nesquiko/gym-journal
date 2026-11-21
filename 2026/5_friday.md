@@ -1,3 +1,14 @@
+## 20.11.
+
+1. Deadlift
+   - 3 x 5 x 110kg
+2. Pullups
+   - 3 x 6 x 12.5kg
+3. Close grip lat pulldowns
+   - 3 x 8 x 65kg
+4. Pushdowns
+   - 3 x 8 x 30kg
+
 ## 6.11.
 
 1. Deadlift
