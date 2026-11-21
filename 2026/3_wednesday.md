@@ -1,3 +1,12 @@
+## 18.11.
+
+1. Squats
+   - 4 x 100kg
+2. Chest press
+   - 3 x 8 x 30kg
+3. Peck deck
+   - 3 x 8 x 45kg
+
 ## 11.11.
 
 This split, with legs in between 2 swim days, is not ideal
