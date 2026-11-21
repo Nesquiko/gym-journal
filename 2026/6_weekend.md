@@ -1,3 +1,21 @@
+## 21.11.
+
+1. Isometric squat push
+   - 3 x 3 x 5"
+2. Pin squats
+   - 3 x 5 x 150kg
+3. Bench press
+   - 3 x 10 x 40kg
+4. Peck deck
+   - 3 x 8 x 50kg
+5. Dumbbell lateral raises
+   - 3 x 10 x 10kg
+6. Stretching
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - standing quads stretch: 2 x 30" per leg
+
 ## 8.11.
 
 Stingy pain under my left knee, probably not fully restored from the diarrhea...
