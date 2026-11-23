@@ -1,3 +1,15 @@
+## 23.11.
+
+1. Squats
+   - 3 x 4 with pause x 100kg
+2. Barberll rows
+   - 3 x 7 x 65kg
+3. Seated calf raises
+   - 3 x ~16 x 40kg
+4. Stretching
+   - standing quads stretch: 2 x 30" per leg
+   - elbow over head stretch: 2 x 30" per arm
+
 ## 9.11.
 
 1. Deadlift
