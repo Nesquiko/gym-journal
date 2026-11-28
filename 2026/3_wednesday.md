@@ -1,3 +1,17 @@
+## 25.11.
+
+1. Squats
+   - 2 x 1 x 120kg
+2. Bench press
+   - 3 x 15 x 40kg
+3. Peck deck
+   - 3 x ~10 x 50kg
+4. Stretching
+   - quads stretch: 2 x 30" per leg
+   - chest stretch against wall: 2 x 30" per arm
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+
 ## 18.11.
 
 1. Squats
