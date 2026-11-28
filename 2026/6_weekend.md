@@ -1,3 +1,18 @@
+## 28.11.
+
+1. Deadlift
+   - 3 x 6 x 110kg
+2. Pullups
+   - 3 x 8 x 12.5kg
+3. Seated calf raises
+   - 3 x ~18 x 40kg
+4. Standing calf raises
+   - 2 x ~16 per leg
+5. Stretching
+   - elbow over head stretch: 2 x 30" per arm
+   - straight arms behind head against wall stretch: 3 x 30"
+   - calf stretch against wall: 2 x 30" per calf
+
 ## 21.11.
 
 1. Isometric squat push
